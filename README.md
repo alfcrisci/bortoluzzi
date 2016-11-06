@@ -1,13 +1,10 @@
-DAGLI SCRITTI DI
-DON GUIDO BORTOLUZZI
+DAGLI SCRITTI DI DON GUIDO BORTOLUZZI
 
 
 
-GENESI BIBLICA
+# **GENESI BIBLICA**
 
-EVOLUZIONE O CREAZIONE ?
-CAINO È LA CHIAVE DEL MISTERO
-
+# _EVOLUZIONE O CREAZIONE ?  CAINO È LA CHIAVE DEL MISTERO_
 
 
 Quarta edizione
@@ -24,232 +21,122 @@ Internet: www.genesibiblica.eu
 
 
 
-DICHIARAZIONE
+### DICHIARAZIONE
 
 Il Concilio Vaticano II nella Costituzione Dogmatica LUMEN GENTIUM al cap. 4° dice: “...Egli (Lo
-Spirito) introduce la Chiesa nella pienezza della verità (cfr. Gv 16,13), la unifica nella comunione e nel
-ministero, la provvede e dirige con diversi doni gerarchici e ‘carismatici’, la abbellisce dei suoi frutti”. (cfr.
-Ef 4,11-12; 1 Cor 12,4; Gal 5,5,22).
+Spirito) introduce la Chiesa nella pienezza della verità (cfr. Gv 16,13), la unifica nella comunione e nel ministero, la provvede e dirige con diversi doni gerarchici e ‘carismatici’, la abbellisce dei suoi frutti”. (cfr. Ef 4,11-12; 1 Cor 12,4; Gal 5,5,22).
+
 Nella Costituzione Pastorale GAUDIUM ET SPES al cap. 44 dice:
 
-L’esperienza dei secoli passati, il progresso delle scienze, i tesori nascosti nelle varie forme di cultura
-umana, attraverso cui si svela più appieno la natura stessa dell’uomo e si aprono nuove vie verso la verità,
-tutto ciò è di vantaggio anche per la Chiesa... È dovere di tutto il popolo di Dio, soprattutto dei pastori e dei
-teologi, con l’aiuto dello Spirito Santo, di ascoltare attentamente, discernere e interpretare i vari modi di
-parlare del nostro tempo e di saperli giudicare alla luce della parola di Dio, perché la verità ‘rivelata’ sia
-capita sempre più a fondo, sia meglio compresa e possa venire presentata in forma più adatta”.
+L’esperienza dei secoli passati, il progresso delle scienze, i tesori nascosti nelle varie forme di cultura umana, attraverso cui si svela più appieno la natura stessa dell’uomo e si aprono nuove vie verso la verità, tutto ciò è di vantaggio anche per la Chiesa... È dovere di tutto il popolo di Dio, soprattutto dei pastori e dei teologi, con l’aiuto dello Spirito Santo, di ascoltare attentamente, discernere e interpretare i vari modi di parlare del nostro tempo e di saperli giudicare alla luce della parola di Dio, perché la verità ‘rivelata’ sia capita sempre più a fondo, sia meglio compresa e possa venire presentata in forma più adatta”.
 
 
 
 
 
-"A Maria Assunta,
+_"A Maria Assunta,
 la Madre naturale di Gesù
 e Madre secondo lo Spirito di tutti i redenti,
 Concepita senza alcuna macchia, o tara, del peccato originale,
 Colei che è Regina del Cielo e della Terra
 e che fu resa da Suo Figlio la Mediatrice di tutte le Grazie,
-sempre in lotta contro il ‘demonio’, ma su lui Vittoriosa."
+sempre in lotta contro il ‘demonio’, ma su lui Vittoriosa."_
 
 
 
 
-
-INTRODUZIONE
+##  INTRODUZIONE
 
 di Renza Giacobbi
 
 
 
-
-
-Quando iniziai il lavoro di riordinare gli scritti di don Guido per adempiere alla promessa che gli feci di
-portare a pubblicazione questo testo, mi sentivo oppressa dalla responsabilità di tale compito. Ma, mano a
-mano che procedevo, mi presero una pace, una gioia, un entusiasmo inspiegabili. Mi rendevo conto che, al di
-là dei fatti narrati, cambiava il mio modo di pormi davanti a Dio e al prossimo, perché cambiava la mia
-prospettiva nel vedere le cose. La mia fede in Dio diventava fiducia, il mio rapporto con gli altri diventava
-comprensione.Feci leggere questo libro ad alcune persone amiche che, superato lo stupore per gli argomenti trattati,
-provavano gli stessi sentimenti e affermavano che, come ogni Parola di Dio, questa rivelazione guariva le
-loro ferite profonde dell’anima: era come se la loro vita fosse giunta ad una svolta perché il rapporto con se
-stessi e gli altri non era più lo stesso.Il Vangelo ci invita ad amare il prossimo. 
+Quando iniziai il lavoro di riordinare gli scritti di don Guido per adempiere alla promessa che gli feci di portare a pubblicazione questo testo, mi sentivo oppressa dalla responsabilità di tale compito. Ma, mano a mano che procedevo, mi presero una pace, una gioia, un entusiasmo inspiegabili. Mi rendevo conto che, al di là dei fatti narrati, cambiava il mio modo di pormi davanti a Dio e al prossimo, perché cambiava la mia prospettiva nel vedere le cose. La mia fede in Dio diventava fiducia, il mio rapporto con gli altri diventava comprensione.Feci leggere questo libro ad alcune persone amiche che, superato lo stupore per gli argomenti trattati, provavano gli stessi sentimenti e affermavano che, come ogni Parola di Dio, questa rivelazione guariva le loro ferite profonde dell’anima: era come se la loro vita fosse giunta ad una svolta perché il rapporto con se stessi e gli altri non era più lo stesso.Il Vangelo ci invita ad amare il prossimo. 
 Ma com’è possibile amare qualcuno che è indisponente o,peggio ancora, una persona senza morale? 
-È impossibile se non conosciamo cosa c’è dentro la natura
-dell’uomo e se non gli diamo delle attenuanti. Freud ha sondato il subconscio e l’inconscio, ma, come
-scienziato, è rimasto emotivamente indifferente di fronte alle alterazioni della psiche.
+È impossibile se non conosciamo cosa c’è dentro la natura dell’uomo e se non gli diamo delle attenuanti. Freud ha sondato il subconscio e l’inconscio, ma, come scienziato, è rimasto emotivamente indifferente di fronte alle alterazioni della psiche.
 Con la lettura di questa rivelazione, invece, si arriva alla conoscenza delle cause profonde del modo di
-sentire e di comportarsi dell’uomo e il nostro approccio non rimane più quello dello spettatore, perché nasce
-in noi un sentimento di comprensione e di pietà che ci permette di amare anche ciò che è sgradevole sapendo
-che di quel comportamento spesso l’uomo non ha colpa, ma ne è vittima.
-Così, cambiando il nostro atteggiamento, vediamo con sorpresa che anche gli altri di riflesso cambiano il
-loro nei nostri confronti.
+sentire e di comportarsi dell’uomo e il nostro approccio non rimane più quello dello spettatore, perché nasce in noi un sentimento di comprensione e di pietà che ci permette di amare anche ciò che è sgradevole sapendo che di quel comportamento spesso l’uomo non ha colpa, ma ne è vittima.
+Così, cambiando il nostro atteggiamento, vediamo con sorpresa che anche gli altri di riflesso cambiano il loro nei nostri confronti.
 L’amore per il prossimo allora non è più una mèta irraggiungibile, perché la conoscenza profonda della
-natura umana ci viene in soccorso ispirandoci tolleranza e perdono per noi stessi e per gli altri. Questa
-rivelazione diventa mezzo di guarigione perché spiega, con la ragione, molti comportamenti umani
-inquadrandoli nella loro giusta dimensione e, soprattutto, fa sì che la guarigione diventi attuabile perché è
-Dio stesso che se ne fa carico e a questo scopo ha predisposto i mezzi e gli strumenti, ai quali l’uomo possa
-ricorrere.
+natura umana ci viene in soccorso ispirandoci tolleranza e perdono per noi stessi e per gli altri. Questa rivelazione diventa mezzo di guarigione perché spiega, con la ragione, molti comportamenti umani
+inquadrandoli nella loro giusta dimensione e, soprattutto, fa sì che la guarigione diventi attuabile perché è Dio stesso che se ne fa carico e a questo scopo ha predisposto i mezzi e gli strumenti, ai quali l’uomo possa ricorrere.
 
 
-Non più incomprensioni fra Scienza e Fede
+### Non più incomprensioni fra Scienza e Fede
 
 Qual’è il problema di oggi che offusca la verità? Non è solo l’incomprensione fra Scienza e Fede, ma la
 crisi stessa della Scienza che, riguardo all’origine dell’uomo, è divisa in due correnti di pensiero
-diametralmente opposte ed inconciliabili: l’evoluzionismo e il creazionismo. Sono inconciliabili perché, pur
-dicendo entrambe alcune verità, ciascuna delle due ha dei limiti negli stessi suoi presupposti, limiti che
-entrambe non sono in grado di superare. L’evoluzionismo, credendo di aver trovato la chiave dell’evoluzione
-nel ‘caso’, sul quale poi interverrebbero dei fattori successivi come l’ambiente e la selezione, si è insabbiato
-da solo quando non può spiegare come si passi dalla materia al pensiero o come si formino organi complessi
-come l’occhio e così via; il creazionismo, d’altro canto, resta incompreso quando si ostina a prendere alla
-lettera espressioni della Bibbia che invece vanno lette con profondo rispetto perché contengono sapienti
-significati allegorici.
-Per cui la scienza, privata di un’etica superiore perché non fa più riferimento al legittimo Creatore, si sta
-comportando in modo selvaggio compromettendo la vita stessa del pianeta e con essa quella dell’umanità.
+diametralmente opposte ed inconciliabili: l’evoluzionismo e il creazionismo. Sono inconciliabili perché, pur dicendo entrambe alcune verità, ciascuna delle due ha dei limiti negli stessi suoi presupposti, limiti che entrambe non sono in grado di superare. L’evoluzionismo, credendo di aver trovato la chiave dell’evoluzione nel ‘caso’, sul quale poi interverrebbero dei fattori successivi come l’ambiente e la selezione, si è insabbiato da solo quando non può spiegare come si passi dalla materia al pensiero o come si formino organi complessi come l’occhio e così via; il creazionismo, d’altro canto, resta incompreso quando si ostina a prendere alla lettera espressioni della Bibbia che invece vanno lette con profondo rispetto perché contengono sapienti significati allegorici.
+Per cui la scienza, privata di un’etica superiore perché non fa più riferimento al legittimo Creatore, si sta comportando in modo selvaggio compromettendo la vita stessa del pianeta e con essa quella dell’umanità.
 Tuttavia queste correnti hanno dei meriti: gli evoluzionisti hanno messo in evidenza la scala biologica
 delle specie, mentre i creazionisti ridanno a Dio il Suo ruolo di Creatore e di legittimo Signore della vita.
-
 È chiaro che la verità sta nel superamento di entrambe.
 Papa Giovanni Paolo II durante un’intervista fattagli dal prof. Nicola Cabibbo, fisico e docente
-all’Università la Sapienza di Roma e presidente della Pontificia Accademia delle Scienze, dichiarò che non vi
-è alcun problema per la Chiesa convenire che esiste ‘un continuo’ fra tutte le specie dalle cellule primordiali
-all’uomo, purché Dio mantenga il Suo ruolo di diretto Creatore. Tuttavia, aggiunge il prof. Cabibbo, nessuno
-scienziato è stato in grado finora di dire ‘come’ siano apparse le varie specie e come sia apparso l’uomo. A ciò
-ha provveduto il Signore stesso con questa rivelazione.
+all’Università la Sapienza di Roma e presidente della Pontificia Accademia delle Scienze, dichiarò che non vi è alcun problema per la Chiesa convenire che esiste ‘un continuo’ fra tutte le specie dalle cellule primordiali all’uomo, purché Dio mantenga il Suo ruolo di diretto Creatore. Tuttavia, aggiunge il prof. Cabibbo, nessuno scienziato è stato in grado finora di dire ‘come’ siano apparse le varie specie e come sia apparso l’uomo. A ciò ha provveduto il Signore stesso con questa rivelazione.
 
 
-La terza via: la creazione mediata
+### La terza via: la creazione mediata
 
 Il superamento di queste opposte posizioni può avvenire solo attraverso nuove conoscenze che
-aggiungano quel tassello mancante attraverso il quale tutta la realtà è spiegabile. Questo tassello è contenuto
-in questa rivelazione.
+aggiungano quel tassello mancante attraverso il quale tutta la realtà è spiegabile. Questo tassello è contenuto in questa rivelazione.
 Questo nuovo elemento, finora mancante, è nell’aver portato a conoscenza la vera storia dell’uomo, dalla
-sua origine al pregiudizio che ne seguì per il cattivo uso della sua libertà che determinò l’involuzione della
-specie umana fino a farla scomparire come specie pura per lasciarla sopravvivere mimetizzata fra le specie
-inferiori. Solo dopo che l’umanità ebbe toccato il fondo, iniziò il suo recupero e quella che gli evoluzionisti
-chiamano evoluzione, in realtà non è che la sua rievoluzione, che molto meglio andrebbe definita come “la
-sua ricostruzione”, sorretta dallo stesso Creatore.
+sua origine al pregiudizio che ne seguì per il cattivo uso della sua libertà che determinò l’involuzione della specie umana fino a farla scomparire come specie pura per lasciarla sopravvivere mimetizzata fra le specie inferiori. Solo dopo che l’umanità ebbe toccato il fondo, iniziò il suo recupero e quella che gli evoluzionisti chiamano evoluzione, in realtà non è che la sua rievoluzione, che molto meglio andrebbe definita come “la sua ricostruzione”, sorretta dallo stesso Creatore.
 Così gli evoluzionisti, che hanno presente solo quest’ultima fase, possono dire di aver giustamente
 compreso lo sviluppo psichico e fisico dell’essere umano e vengono incoraggiati sul loro studio
-antropologico, mentre i creazionisti possono finalmente veder coronata la loro intenzione di dare a Dio ciò
-che è di Dio: la creazione dell’uomo e di ogni altra specie.
-Questa rivelazione è finalizzata a chiarire con argomenti scientifici, ma accessibili a tutti, i punti oscuri
-della Genesi. In sintesi Dio dice che ogni creazione di una nuova specie è sempre partita da un seme e che
-mai una pianta o un animale è stato creato allo stato già sviluppato e adulto come per magia, sebbene questo
-Gli sarebbe stato possibile essendo Egli Potenza Assoluta. Questo principio di iniziare ogni creazione dal
-seme vale sia per l’universo che per la vita.
+antropologico, mentre i creazionisti possono finalmente veder coronata la loro intenzione di dare a Dio ciò che è di Dio: la creazione dell’uomo e di ogni altra specie.
+Questa rivelazione è finalizzata a chiarire con argomenti scientifici, ma accessibili a tutti, i punti oscuri della Genesi. In sintesi Dio dice che ogni creazione di una nuova specie è sempre partita da un seme e che mai una pianta o un animale è stato creato allo stato già sviluppato e adulto come per magia, sebbene questo
+Gli sarebbe stato possibile essendo Egli Potenza Assoluta. Questo principio di iniziare ogni creazione dal seme vale sia per l’universo che per la vita.
 Non spiega come Dio creò la vita biologica ai suoi albori ma, mostrando come operò per creare il primo
 Uomo e la prima Donna, suggerisce di estendere questo principio anche alla creazione di tutte le altre specie.
 Quindi, anche il primo Uomo e la prima Donna non furono creati già adulti, come vorrebbero i
-creazionisti fondamentalisti, né in via di evoluzione come vorrebbero gli evoluzionisti, ma vennero creati
-nella loro prima cellula e già nella loro perfezione assoluta.
+creazionisti fondamentalisti, né in via di evoluzione come vorrebbero gli evoluzionisti, ma vennero creati nella loro prima cellula e già nella loro perfezione assoluta.
 E dove mai avrebbe potuto svilupparsi la vita in embrione se non nell’utero di una femmina di una specie
 già esistente?
 A questo scopo il Signore si servì, come ‘mezzo’ per la creazione dell’Uomo e della Donna, di una
 femmina di una specie ora estinta, quella degli ancestri (così denominata dal Signore). Perciò questo
 processo è stato chiamato ‘creazione mediata’ perché, come dice l’espressione stessa, Dio ha usato come
-qualsiasi altra nuova specie. La sola, ma importantissima, differenza rispetto alla creazione di tutte le altre
-specie fu che nella creazione dell’Uomo e della Donna Dio aggiunse, fin dall’attimo del loro concepimento,
+qualsiasi altra nuova specie. La sola, ma importantissima, differenza rispetto alla creazione di tutte le altre specie fu che nella creazione dell’Uomo e della Donna Dio aggiunse, fin dall’attimo del loro concepimento,
 un elemento nuovo, il Suo Spirito, così che essi divennero spiritualmente Suoi Figli.
 Quindi l’Uomo deriva, ma ‘non discende’, dalla specie immediatamente inferiore perché in tutto e per
-tutto è ‘nuova’ creazione non essendo passato alcun gene dalla specie inferiore a quella superiore. Passò
-solo il nutrimento. Ciò non toglie che le due specie, quella umana e quella ancestre, pur avendo un numero di
-cromosomi diverso, siano state create con un certo numero di geni uguali.
+tutto è ‘nuova’ creazione non essendo passato alcun gene dalla specie inferiore a quella superiore. Passò solo il nutrimento. Ciò non toglie che le due specie, quella umana e quella ancestre, pur avendo un numero di cromosomi diverso, siano state create con un certo numero di geni uguali.
 Fu l’enorme quantità di specie in progressione di sempre maggior complessità e perfezione ad indurre in
 errore gli evoluzionisti che dedussero che il processo evolutivo fosse spontaneo.
-
-Per quanto concerne i contenuti, il Signore fece vedere a don Guido come il peccato originale, peccato di
-disobbedienza, di estrema presunzione e di autosufficienza commesso dal primo Uomo con la femmina
+Per quanto concerne i contenuti, il Signore fece vedere a don Guido come il peccato originale, peccato di disobbedienza, di estrema presunzione e di autosufficienza commesso dal primo Uomo con la femmina
 ancestre dalla quale la specie umana era derivata, inquinò la specie umana perfetta pregiudicando le
-generazioni successive. Si determinò quindi una strana situazione: da un lato si ebbe una discendenza pura e
-legittima derivata dalla prima coppia dei Figli di Dio, l’Uomo e la Donna; dall’altro una discendenza ibrida
-derivata dallo stesso Uomo e dalla femmina ancestre appartenente alla specie subumana. Quindi si ebbero
-due genealogie parallele, una pura e legittima con tutti i requisiti di perfezione ricevuti da Dio, ed una ibrida
-e illegittima che si degradò fino a perdere ogni sembianza umana per mimetizzarsi fra gli ominidi.
+generazioni successive. Si determinò quindi una strana situazione: da un lato si ebbe una discendenza pura e legittima derivata dalla prima coppia dei Figli di Dio, l’Uomo e la Donna; dall’altro una discendenza ibrida derivata dallo stesso Uomo e dalla femmina ancestre appartenente alla specie subumana. Quindi si ebbero due genealogie parallele, una pura e legittima con tutti i requisiti di perfezione ricevuti da Dio, ed una ibrida e illegittima che si degradò fino a perdere ogni sembianza umana per mimetizzarsi fra gli ominidi.
 Le novità non sono poi tanto nuove come potrebbero sembrare a prima vista, perché le due figure
-femminili, Eva, la femmina ancestre che fu la partner di Adamo nel peccato originale e che divenne madre di
-Caino, e la Donna, la legittima e innocente sposa di Adamo che divenne madre di Abele e di Set, sono
-contemplate anche nella antica tradizione ebraica la quale racconta che furono due le ‘cosiddette mogli’ di
-Adamo: una, la prima, Lilith, che generò dèmoni e mostri malvagi, l’altra che generò uomini.
-Con il passare del tempo, quando ai Figli di Dio (i discendenti puri di Adamo) piacquero le più belle delle
-figlie degli uomini (le femmine dei discendenti ibridi di Adamo) e le presero in mogli, ossia come schiave
-concubine (Gn. 6,2), i due rami genealogici cominciarono a fondersi a spese del ramo puro che lentamente si
-assottigliò fino a scomparire definitivamente come specie pura, assorbito dalla popolazione ibrida. Così i
-discendenti ibridi s’inabissarono progressivamente in un’involuzione psicosomatica che fece perdere loro i
-requisiti di uomini perfetti per farli sopravvivere allo stato di ominidi. Pertanto questi uomini ibridi persero
-non solo il requisito di Figli di Dio, ma anche lo Spirito di Dio (Gn. 6,3) perché lo Spirito di Dio non poteva
-abitare in esseri animaleschi.
+femminili, Eva, la femmina ancestre che fu la partner di Adamo nel peccato originale e che divenne madre di Caino, e la Donna, la legittima e innocente sposa di Adamo che divenne madre di Abele e di Set, sono contemplate anche nella antica tradizione ebraica la quale racconta che furono due le ‘cosiddette mogli’ di Adamo: una, la prima, Lilith, che generò dèmoni e mostri malvagi, l’altra che generò uomini.
+Con il passare del tempo, quando ai Figli di Dio (i discendenti puri di Adamo) piacquero le più belle delle figlie degli uomini (le femmine dei discendenti ibridi di Adamo) e le presero in mogli, ossia come schiave concubine (Gn. 6,2), i due rami genealogici cominciarono a fondersi a spese del ramo puro che lentamente si assottigliò fino a scomparire definitivamente come specie pura, assorbito dalla popolazione ibrida. Così i discendenti ibridi s’inabissarono progressivamente in un’involuzione psicosomatica che fece perdere loro i requisiti di uomini perfetti per farli sopravvivere allo stato di ominidi. Pertanto questi uomini ibridi persero non solo il requisito di Figli di Dio, ma anche lo Spirito di Dio (Gn. 6,3) perché lo Spirito di Dio non poteva abitare in esseri animaleschi.
 
-Solo dopo che le frange più compromesse furono spazzate via da selezioni di vario tipo, il Signore iniziò
-il recupero della specie umana ibrida, promuovendo un processo di ricostruzione. Alla specie ibrida, cioè
-discendente del ramo illegittimo di Adamo, appartiene oggi tutto il genere umano. I reperti archeologici
-sono dunque la prova non dell’evoluzione della specie umana, bensì del suo decadimento e del suo recupero,
+Solo dopo che le frange più compromesse furono spazzate via da selezioni di vario tipo, il Signore iniziò il recupero della specie umana ibrida, promuovendo un processo di ricostruzione. Alla specie ibrida, cioè discendente del ramo illegittimo di Adamo, appartiene oggi tutto il genere umano. I reperti archeologici sono dunque la prova non dell’evoluzione della specie umana, bensì del suo decadimento e del suo recupero,
 fenomeni che spesso si sono intrecciati fra loro. E questo processo di ricostruzione è ancora in atto.
-Quando poi l’umanità rievoluta raggiunse un livello di sufficiente capacità di intendere e di volere, cioè
-nella pienezza dei tempi, Dio mandò Suo Figlio Gesù affinché ridonasse il Suo Spirito a tutti i miti e i giusti
-della terra così che, per la Sua obbedienza e mediazione, essi potessero esser riammessi all’eredità spirituale
-e potessero esser riaperte loro le porte dell’eterna felicità. Perciò, in quanto figli illegittimi, senza la
-Redenzione ‘non siamo eredi’ dei beni eterni previsti da Dio per i Suoi Figli legittimi: solo la Redenzione
-operata da Cristo può riportare i ‘figli naturali dell’Uomo’ (Adamo) nella condizione di ‘figli adottivi di
-Dio’.
+Quando poi l’umanità rievoluta raggiunse un livello di sufficiente capacità di intendere e di volere, cioè nella pienezza dei tempi, Dio mandò Suo Figlio Gesù affinché ridonasse il Suo Spirito a tutti i miti e i giusti della terra così che, per la Sua obbedienza e mediazione, essi potessero esser riammessi all’eredità spirituale e potessero esser riaperte loro le porte dell’eterna felicità. Perciò, in quanto figli illegittimi, senza la
+Redenzione ‘non siamo eredi’ dei beni eterni previsti da Dio per i Suoi Figli legittimi: solo la Redenzione operata da Cristo può riportare i ‘figli naturali dell’Uomo’ (Adamo) nella condizione di ‘figli adottivi di Dio’.
 Questa rivelazione è di una semplicità e di una logica straordinarie, come lo è del resto ogni cosa che
 proviene da Dio.
 Il Vangelo dice che Gesù, alla fine della Sua missione, disse ai Suoi apostoli: “Avrei ancora molte cose
-Rivelazione rimaneva aperta e che, quando gli uomini fossero stati in grado di ‘portarne il peso’, cioè di
-capire correttamente ciò che fosse stato loro rivelato, essa avrebbe avuto un seguito. Questa rivelazione è un
-supporto esplicativo di ciò che è già stato detto nella Genesi mosaica, ampliando dettagli e rispondendo a
-quei quesiti che la prima non poteva dare. Se il Signore ha atteso questi tempi, è perché questa rivelazione,
-che riguarda principalmente la genetica, aveva bisogno che la scienza fosse in grado di comprenderne i
-passaggi e i contenuti, altrimenti sarebbe stata inutile. Essa è importantissima perché non solo chiarisce e
-spiega ciò che nella Genesi è detto ‘in nuce’ sotto forma di metafore o di simboli, ma ci dà quella
-comprensione che è indispensabile per capire in profondità il vero significato della Redenzione.
-A coloro che obiettano che la rivelazione si è chiusa con l’ultimo Apostolo perché hanno letto gli ultimi
-versetti dell’Apocalisse, diremo che, se fanno bene attenzione, vedranno che questi si riferiscono solo
-all’Apocalisse. Nessuno potrà mai limitare la libertà di Dio che, da buon Padre, desidera avvicinarsi ai Suoi
-figli attraverso i canali che Egli stesso di volta in volta sceglie per soddisfare quelle esigenze di conoscenza
-che proprio Lui ha stillato nell’uomo. Gesù ha fondato la Sua Chiesa che, pur essendo Una, si esprime con
-due funzioni distinte e fondamentali: da un lato la Chiesa gerarchica è preposta per amministrare la Grazia in
-tutte le sue forme, dall’altro la Chiesa carismatica ha la funzione di rendere viva e attuale la Parola di Dio
-dandole luce e calore. Queste due funzioni della Chiesa non sono in concorrenza fra loro, ma sono
+Rivelazione rimaneva aperta e che, quando gli uomini fossero stati in grado di ‘portarne il peso’, cioè di capire correttamente ciò che fosse stato loro rivelato, essa avrebbe avuto un seguito. Questa rivelazione è un supporto esplicativo di ciò che è già stato detto nella Genesi mosaica, ampliando dettagli e rispondendo a quei quesiti che la prima non poteva dare. Se il Signore ha atteso questi tempi, è perché questa rivelazione, che riguarda principalmente la genetica, aveva bisogno che la scienza fosse in grado di comprenderne i passaggi e i contenuti, altrimenti sarebbe stata inutile. Essa è importantissima perché non solo chiarisce e spiega ciò che nella Genesi è detto ‘in nuce’ sotto forma di metafore o di simboli, ma ci dà quella comprensione che è indispensabile per capire in profondità il vero significato della Redenzione.
+A coloro che obiettano che la rivelazione si è chiusa con l’ultimo Apostolo perché hanno letto gli ultimi versetti dell’Apocalisse, diremo che, se fanno bene attenzione, vedranno che questi si riferiscono solo all’Apocalisse. Nessuno potrà mai limitare la libertà di Dio che, da buon Padre, desidera avvicinarsi ai Suoi figli attraverso i canali che Egli stesso di volta in volta sceglie per soddisfare quelle esigenze di conoscenza che proprio Lui ha stillato nell’uomo. Gesù ha fondato la Sua Chiesa che, pur essendo Una, si esprime con due funzioni distinte e fondamentali: da un lato la Chiesa gerarchica è preposta per amministrare la Grazia in tutte le sue forme, dall’altro la Chiesa carismatica ha la funzione di rendere viva e attuale la Parola di Dio dandole luce e calore. Queste due funzioni della Chiesa non sono in concorrenza fra loro, ma sono
 complementari e si integrano a vicenda.
 Il Santo Padre Benedetto XVI, al quale a suo tempo ho fatto pervenire il libro ‘Genesi biblica’ di don
 Guido Bortoluzzi, ha successivamente affermato nelle sue catechesi di fine 2008 che l’evoluzionismo mina
-in modo sottile le fondamenta stesse del cristianesimo. Riguardo al ‘peccato originale’, il 3 dicembre 2008
-disse che alla natura originariamente buona dell’uomo questo peccato “sovrappose una seconda natura” che
-ha corrotto “biologicamente” l’umanità e che, ancora “biologicamente”, ossia geneticamente, si è trasmessa
-fino ai giorni nostri: esatttamente come si dice in questa rivelazione. Questo suo intervento sul peccato
-originale, apre le porte a questa rivelazione. Nella stessa catachesi il Papa ha ricordato anche la Lettera di S.
-Paolo ai Romani nella quale si afferma che “per colpa di ‘un solo’ uomo, Adamo, il peccato entrò nel mondo
-(Rm 5,12)...” (ancora in sintonia con la stessa rivelazione) e che “per i meriti ‘di Uno solo’, Gesù, abbiamo la
-Vita (spirituale in Dio) (Rm 6,11)...”. Egli ha ricordato poi che sia il peccato originale che la Redenzione
-sono, per i cattolici, dogmi di fede.
+in modo sottile le fondamenta stesse del cristianesimo. Riguardo al ‘peccato originale’, il 3 dicembre 2008 disse che alla natura originariamente buona dell’uomo questo peccato “sovrappose una seconda natura” cheha corrotto “biologicamente” l’umanità e che, ancora “biologicamente”, ossia geneticamente, si è trasmessa fino ai giorni nostri: esatttamente come si dice in questa rivelazione. Questo suo intervento sul peccato originale, apre le porte a questa rivelazione. Nella stessa catachesi il Papa ha ricordato anche la Lettera di S. Paolo ai Romani nella quale si afferma che “per colpa di ‘un solo’ uomo, Adamo, il peccato entrò nel mondo (Rm 5,12)...” (ancora in sintonia con la stessa rivelazione) e che “per i meriti ‘di Uno solo’, Gesù, abbiamo la Vita (spirituale in Dio) (Rm 6,11)...”. Egli ha ricordato poi che sia il peccato originale che la Redenzione sono, per i cattolici, dogmi di fede.
 Benedetto XVI ha sempre sostenuto che la vera scienza e la fede non sono in antitesi e auspica che fra
 esse nasca complementarietà. Ribadisce che la comparsa di ogni nuova specie è avvenuta per intervento
-diretto di Dio Creatore (vedi altre sue catechesi: quella dell’8 e del 10 dicembre 2008). Quindi la dottrina
-cattolica condivide la scaletta evolutiva fra le specie proposta dagli evoluzionisti, ma nega l’evoluzione
-spontanea delle specie e il sorgere di nuove specie dovuto al caso e alla naturale selezione e dà a Dio
-Creatore il giusto ruolo che Gli spetta.
-È dunque ragionevole evitare di assumere a priori posizioni negative di fronte alla rivelazione ricevuta da
-don Guido, la quale è veramente un segno della Misericordia di Dio, perché i suoi presupposti sono conformi
-al Credo cattolico.
-Dice Gesù a Maria Valtorta (vedi i Quaderni del 1944, messaggio dell’8 marzo): “(Prima che finisca
-quest’epoca) tutto si deve conoscere del simbolismo biblico che ha inizio sin dalle prime parole della Genesi,
-e se Io (Gesù) vi istruisco su un punto finora inspiegato, accogliete il dono e traetene frutto e non condanna.
+diretto di Dio Creatore (vedi altre sue catechesi: quella dell’8 e del 10 dicembre 2008). Quindi la dottrina cattolica condivide la scaletta evolutiva fra le specie proposta dagli evoluzionisti, ma nega l’evoluzione spontanea delle specie e il sorgere di nuove specie dovuto al caso e alla naturale selezione e dà a Dio Creatore il giusto ruolo che Gli spetta.
+È dunque ragionevole evitare di assumere a priori posizioni negative di fronte alla rivelazione ricevuta da don Guido, la quale è veramente un segno della Misericordia di Dio, perché i suoi presupposti sono conformi al Credo cattolico.
+Dice Gesù a Maria Valtorta (vedi i Quaderni del 1944, messaggio dell’8 marzo): 
+
+“(Prima che finisca
+quest’epoca) tutto si deve conoscere del simbolismo biblico che ha inizio sin dalle prime parole della Genesi,e se Io (Gesù) vi istruisco su un punto finora inspiegato, accogliete il dono e traetene frutto e non condanna.
 Non fate come i Giudei del Mio tempo mortale che vollero chiudere il cuore alle mie istruzioni e, non
 potendoMi eguagliare nel comprendere i misteri e le verità soprannaturali, Mi chiamavano ossesso e
 bestemmiatore”.
-L’esperienza di secoli ci insegna che non basta che una verità non ancora conosciuta sia verità perché si
-autoaffermi. La verità ha anche bisogno di trovare un animo aperto senza preconcetti. E, quando questo
-avviene, è necessario, per essere accreditata, che tutti i tasselli razionali s’incastrino perfettamente e che
-nessun punto sia in contraddizione con tutti gli altri.
-Ho cercato di eseguire questo lavoro con il massimo scrupolo. Dove è stato possibile ho arricchito il testo
-con spiegazioni, commenti, descrizioni più ricche di particolari e di colore, presi da altri scritti di don Guido
-e da appunti tratti dalle nostre frequenti lunghe conversazioni con il desiderio di fare unicamente la Volontà
+L’esperienza di secoli ci insegna che non basta che una verità non ancora conosciuta sia verità perché si autoaffermi. La verità ha anche bisogno di trovare un animo aperto senza preconcetti. E, quando questo avviene, è necessario, per essere accreditata, che tutti i tasselli razionali s’incastrino perfettamente e che nessun punto sia in contraddizione con tutti gli altri.
+Ho cercato di eseguire questo lavoro con il massimo scrupolo. Dove è stato possibile ho arricchito il testo con spiegazioni, commenti, descrizioni più ricche di particolari e di colore, presi da altri scritti di don Guido e da appunti tratti dalle nostre frequenti lunghe conversazioni con il desiderio di fare unicamente la Volontà
 del Signore.
 Proporrei un piccolo suggerimento al lettore che, preso dalla curiosità, potrebbe essere invogliato ad
-anticipare la lettura di alcuni capitoli. Poiché questo insegnamento del Signore ha un unico filo conduttore
-che ha una logica molto ferrea, se non viene seguito passo-passo, perde molti punti del suo ragionamento. È
-come la dimostrazione di un teorema di geometria che, qualora venga saltato un passaggio, tutto il teorema
-cade. Ad esempio la scoperta dell’identità di Eva, fondamentale per la comprensione di tutta la rivelazione,
-avviene per gradi ed è giusto seguire il percorso di comprensione che ha seguito don Guido.
+anticipare la lettura di alcuni capitoli. Poiché questo insegnamento del Signore ha un unico filo conduttore che ha una logica molto ferrea, se non viene seguito passo-passo, perde molti punti del suo ragionamento. È come la dimostrazione di un teorema di geometria che, qualora venga saltato un passaggio, tutto il teorema cade. Ad esempio la scoperta dell’identità di Eva, fondamentale per la comprensione di tutta la rivelazione, avviene per gradi ed è giusto seguire il percorso di comprensione che ha seguito don Guido.
 Direi che anche la biografia di don Guido ha molta importanza per capire come il Signore lo abbia
 preparato al Suo incontro fin dalla più tenera età.
 
@@ -257,74 +144,51 @@ preparato al Suo incontro fin dalla più tenera età.
 
 
 
-SEZIONE I
+## SEZIONE I
 
-VITA DI DON GUIDO BORTOLUZZI
+### VITA DI DON GUIDO BORTOLUZZI
 
 
-Un’infanzia difficile
+#### Un’infanzia difficile
 
-Il 7 ottobre del 1907 veniva alla luce a Puos d’Alpago, poco lontano dal lago di S. Croce in provincia di
-Belluno, nel nord del Veneto, il piccolo Guido, terzogenito di Osvaldo Bortoluzzi che, dopo essere rimasto
-vedovo con la nascita del primo figlio, aveva sposato in seconde nozze Ancilla Mocellin. Entrambi i genitori
-erano maestri elementari.
-Dal primo matrimonio il padre aveva avuto Giuseppe, otto anni più grande di Guido, che morì ancora
-adolescente.
+Il 7 ottobre del 1907 veniva alla luce a Puos d’Alpago, poco lontano dal lago di S. Croce in provincia di Belluno, nel nord del Veneto, il piccolo Guido, terzogenito di Osvaldo Bortoluzzi che, dopo essere rimasto vedovo con la nascita del primo figlio, aveva sposato in seconde nozze Ancilla Mocellin. Entrambi i genitori erano maestri elementari. Dal primo matrimonio il padre aveva avuto Giuseppe, otto anni più grande di Guido, che morì ancora adolescente.
 Dalla seconda moglie ebbe altri tre figli: prima Gino, nato nel 1906, poi Guido, nato nel 1907 e infine
 Giulio, nato nel 1910.
 La vita di Guido è stata segnata fin dai primi momenti da difficoltà: la madre non aveva latte e a quei
 tempi il latte artificiale non c’era ancora.
 La nonna paterna Caterina si diede da fare e trovò a 7 km di distanza una buona contadina che aveva
-appena perduto il suo bambino ed era disposta a prendere a balia il piccolo. Aveva latte buono e tanto amore
-materno.
+appena perduto il suo bambino ed era disposta a prendere a balia il piccolo. Aveva latte buono e tanto amore materno.
 Così nonna Caterina mise il neonato in una gerla di vimini e s’incamminò a piedi su per la montagna. Tra
-le braccia della balia Guido succhierà, insieme al latte, amore e cure. Sarà questo uno dei rari periodi di
-serenità della sua infanzia.
+le braccia della balia Guido succhierà, insieme al latte, amore e cure. Sarà questo uno dei rari periodi di serenità della sua infanzia.
 Ad un anno, un mese e un giorno la balia lo riporterà a casa ancora con la gerla dalla quale il piccino,
-lungo la strada, faceva eco alle preghiere che la donna recitava a voce alta rispondendo ad ogni litania: “Oa
-po nobis”.
+lungo la strada, faceva eco alle preghiere che la donna recitava a voce alta rispondendo ad ogni litania: “Oapo nobis”.
 Dopo poco la famiglia si trasferì a Farra d’Alpago dove con un mutuo i genitori avevano comprato una
 piccola e vecchia casa.
 L’ambiente era freddo in tutti i sensi. Fra i genitori non c’era armonia. La madre ‘siora Ancilla’, o
 semplicemente ‘la maestra’, come tutti la chiamavano, era brava, energica e temuta insegnante, ma dura e
 parziale con marito e figli.
 Il marito, appassionato cacciatore, si rifugiava sempre più spesso nelle battute di caccia pur di stare
-lontano da casa. Sovente si fermava a dormire nei cascinali, incurante del maltempo. Fu così che s’ammalò
-di tubercolosi, malattia che lo portò alla morte nel 1911 poco dopo la nascita del quarto figlio. Uomo
-impulsivo, collerico, scontento, era la sofferenza della vecchia nonna Caterina che non riuscì con le sue
-premure a farlo riaccostare ai Sacramenti neanche quand’egli si trovò in fin di vita. Lo ottenne il piccolo
-Guido.
+lontano da casa. Sovente si fermava a dormire nei cascinali, incurante del maltempo. Fu così che s’ammalò di tubercolosi, malattia che lo portò alla morte nel 1911 poco dopo la nascita del quarto figlio. Uomo impulsivo, collerico, scontento, era la sofferenza della vecchia nonna Caterina che non riuscì con le sue premure a farlo riaccostare ai Sacramenti neanche quand’egli si trovò in fin di vita. Lo ottenne il piccolo Guido.
 
 Si legge in una pagina autobiografica:
 
 Quella santa donna carismatica che fu mia nonna paterna mi predisse fin da quando avevo quasi quattro
-anni che da grande sarei stato prete e sarei stato contento di sapere che il papà prima di morire aveva fatto
-pace con Dio. Era gravemente malato e aveva espresso il desiderio di vedere i suoi tre figlioletti prima di
-morire.
-Abitavamo a 8 km di distanza e ci andammo in carrozza. Non potevamo baciarlo in faccia perché c’era
-pericolo di TBC.
+anni che da grande sarei stato prete e sarei stato contento di sapere che il papà prima di morire aveva fatto pace con Dio. Era gravemente malato e aveva espresso il desiderio di vedere i suoi tre figlioletti prima di morire. Abitavamo a 8 km di distanza e ci andammo in carrozza. Non potevamo baciarlo in faccia perché c’era pericolo di TBC.
 La mamma si fermò da lui in camera; noi, piccoli, fummo invitati dalla nonna a rimanere fuori, nel
-corridoio. Qui la nonna chiamò vicino a sè il più grande, di 5 anni. Voleva incaricarlo di una missione, ma
-egli scappò via. Chiamò me e disse:
+corridoio. Qui la nonna chiamò vicino a sè il più grande, di 5 anni. Voleva incaricarlo di una missione, ma egli scappò via. Chiamò me e disse:
 
 – Hai visto il papà com’è patito! Morirà presto e non lo vedrai più. – E piangeva. – Poveri piccoli! Ha
-patito tanto, sai, e patirà ancora di più dopo morto perché ha detto tante e tante bestemmie. Ma tu vuoi bene
-al tuo papà, vero? Tu puoi salvarlo dai patimenti dell’inferno dopo la morte. –
-
+patito tanto, sai, e patirà ancora di più dopo morto perché ha detto tante e tante bestemmie. Ma tu vuoi bene al tuo papà, vero? Tu puoi salvarlo dai patimenti dell’inferno dopo la morte. –
 E mi spiegò in breve cos’è l’inferno.
 – Va dentro e digli che chiami il prete e che faccia pace con Dio. –
 Entrai e dissi:
-
 – Papà, ti voglio bene; non voglio che tu vada a patire anche all’inferno. –
 – Reazione violenta: – È stata quella stupida di tua nonna a dirti queste cose? – E giù ingiurie e
 bestemmie. Scappai fuori e dissi alla nonna:
-
 – È cattivo, non torno da lui. –
-
 Lei invece mi convinse a ritornare. Mi promise che avrebbe pregato lo Spirito Santo e la Madonna
 perché gli facessero capire l’importanza e l’urgenza del messaggio. Mentre mi scostavo da lei disse:
 – Povero innocente, perché sei così piccolo non ti crederà. Ma ti seguo con la preghiera. –
-
 Arrivato al capezzale del malato, dissi subito:
 – Papà, tu non mi credi perché sono piccolo, ma io so, sai, quello che dico. Quando sarò grande sarò
 prete e sarò contento di sapere che, prima di morire, hai fatto pace con Dio. –
@@ -343,24 +207,16 @@ Un anno dopo la nonna venne a trovarci a Farra. Si mostrò buona con me.
 La nonna in quell’occasione gli portò un giochino. Quando partì, la mamma prese il gioco per darlo a
 Giulio, il più piccolo, che lo ruppe subito.
 Dopo la morte della nonna Guido non ebbe più nemmeno il soldino che ella donava ai nipotini nelle feste.
-Orfano di padre e con la morte della nonna, la sua vita divenne ancor più triste. La madre aveva per lui un
-astio incontrollabile e una predilezione speciale per il piccolo Giulio che era il più bello ed il più gracilino
-dei quattro maschi. Guido invece era un bambino forte, che cresceva bene. Forse per questo a tavola, nella
-povera cucina, doveva sedersi sempre nel posto più esposto agli spifferi che entravano dalle fessure della
-finestra. Negli inverni freddi l’aria gelida che gli arrivava dritta alle spalle diventava un tormento.
+Orfano di padre e con la morte della nonna, la sua vita divenne ancor più triste. La madre aveva per lui un astio incontrollabile e una predilezione speciale per il piccolo Giulio che era il più bello ed il più gracilino dei quattro maschi. Guido invece era un bambino forte, che cresceva bene. Forse per questo a tavola, nella povera cucina, doveva sedersi sempre nel posto più esposto agli spifferi che entravano dalle fessure della finestra. Negli inverni freddi l’aria gelida che gli arrivava dritta alle spalle diventava un tormento.
 Fino alla quinta elementare non ebbe neppure un letto normale e fu costretto a dormire raggomitolato in
 un lettino con le sponde che gli impedivano di allungare le gambe.
-Come i suoi fratelli, doveva andare a turno a prendere l’acqua alla fontana, portare al primo piano la legna
-e fare ogni genere di servizi, come quello di salire a prendere il latte alla malga Pèterle che distava più
-d’un’ora di cammino, dove in estate alpeggiavano le mucche della valle.
-Scrive don Guido: “Ebbi un’infanzia e una fanciullezza senza i giochi e gli spassi di quell’età per dover
-accudire alle faccende di casa, ma con la gioia di andare in chiesa alle funzioni e a cantare”.
+Come i suoi fratelli, doveva andare a turno a prendere l’acqua alla fontana, portare al primo piano la legna e fare ogni genere di servizi, come quello di salire a prendere il latte alla malga Pèterle che distava più d’un’ora di cammino, dove in estate alpeggiavano le mucche della valle.
+Scrive don Guido: “Ebbi un’infanzia e una fanciullezza senza i giochi e gli spassi di quell’età per dover accudire alle faccende di casa, ma con la gioia di andare in chiesa alle funzioni e a cantare”.
 
 
-La sua precoce vocazione diventa una promessa
+#### La sua precoce vocazione diventa una promessa
 
-Fu appunto durante una di queste escursioni per andare a prendere il latte quando, all’età di dieci anni, gli
-accadde un fatto che rafforzò la sua decisione di offrire tutto se stesso alla Madonna e al Signore e diventare
+Fu appunto durante una di queste escursioni per andare a prendere il latte quando, all’età di dieci anni, gli accadde un fatto che rafforzò la sua decisione di offrire tutto se stesso alla Madonna e al Signore e diventare
 prete: la Madonna lo aveva miracolosamente salvato dal pericolo di cadere in un precipizio.
 Riprendo un’altra pagina autobiografica.
 
@@ -374,7 +230,7 @@ coprivano la strada ripida, ma i danni li sentivano le mie caviglie.
 Mi sconsigliarono di prendere la scorciatoia per i prati del Col Salèr ai Lastrìn, ma, giunto al bivio coi
 piedi dolenti, preferii eventuali scivolate sul prato ai sassi che mi rotolavano sotto i piedi.
 
-1
+[[1]]: 
 Scarponcini artigianali di cuoio grezzo con una grossa suola di legno sagomato e fissato alla tomaia con borchie piantate
 tutt’attorno.
 Si fece buio presto e non sapevo a che punto dovevo girare a sinistra per ritornare sulla strada. La
@@ -401,60 +257,38 @@ Fatti alcuni passi prudenti verso la strada, mi ritrovai di fronte ad un profond
 saltarlo e non trovavo, nel buio, il modo di aggirarlo. Disperato urlai ancora:
 – Madonna Santissima, aiutatemi ancora. Fate che trovi la via d’uscita. –
 Fui molto contento di vedere ancora un lampo e poi un secondo. Così riuscii a portarmi in salvo.
-Il berretto fu trovato, su mie indicazioni, da mio fratello maggiore il giorno seguente, in cui toccava a lui,
-di turno, recarsi alle Casere Pèterle, a prendere il solito litro di latte.
+Il berretto fu trovato, su mie indicazioni, da mio fratello maggiore il giorno seguente, in cui toccava a lui, di turno, recarsi alle Casere Pèterle, a prendere il solito litro di latte.
 
 
-La visione dell’apparizione della Madonna ai tre pastorelli a Fatima,
-il 13 ottobre 1917,  avuta da don Guido a 10 anni
+#### La visione dell’apparizione della Madonna ai tre pastorelli a Fatima,il 13 ottobre 1917,  avuta da don Guido a 10 anni
 
-Di lì a poco ci fu un altro episodio che vagamente si ricollega a quello precedente per via di quel famoso
-berretto e che ricorderà da adulto con molta commozione in un altro brano autobiografico.
 
-C’è un rapporto misterioso tra una visione che ho avuto il 13 ottobre 1917 all’età di dieci anni e il fatto
-straordinario accaduto lo stesso giorno a Fatima in Portogallo.
-Quel giorno mi trovavo a giocare a nascondino con un amico in una stalla vuota di animali, presso casa
-mia. Egli mi tolse il berretto, lo gettò sul selciato e vi buttò sopra una bracciata di foglie secche tolte da un
-grande mucchio addossato alla parete, sfidandomi di trovarlo entro lo spazio di un’Ave Maria.
+Di lì a poco ci fu un altro episodio che vagamente si ricollega a quello precedente per via di quel famoso berretto e che ricorderà da adulto con molta commozione in un altro brano autobiografico.
+
+C’è un rapporto misterioso tra una visione che ho avuto il 13 ottobre 1917 all’età di dieci anni e il fatto straordinario accaduto lo stesso giorno a Fatima in Portogallo. Quel giorno mi trovavo a giocare a nascondino con un amico in una stalla vuota di animali, presso casa mia. Egli mi tolse il berretto, lo gettò sul selciato e vi buttò sopra una bracciata di foglie secche tolte da un grande mucchio addossato alla parete, sfidandomi di trovarlo entro lo spazio di un’Ave Maria.
 – Adesso trova il tuo berretto – disse.
 – Lo troverò – risposi – a costo di passare le foglie ad una manciata alla volta. –
-Trovato il berretto, toccò a me nasconderlo. A turno egli si voltò dalla parte opposta, mentre nascondevo
-il berretto sotto un mucchio più grande di foglie. Il gioco continuò con sfida alterna. Ad un nuovo turno mio,
-il berretto si trovò sotto un mucchio di foglie alto quanto la mia statura.
+Trovato il berretto, toccò a me nasconderlo. A turno egli si voltò dalla parte opposta, mentre nascondevo il berretto sotto un mucchio più grande di foglie. Il gioco continuò con sfida alterna. Ad un nuovo turno mio, il berretto si trovò sotto un mucchio di foglie alto quanto la mia statura.
 La campana suonò l’Ave Maria di mezzodì e l’amico scappò via.
 Introducendo il braccio tra il fogliame, non riuscivo più a pescare nel fondo il berretto come le altre
-volte. Non si trovava più al centro della base del cumulo. Dovetti adattarmi a prendere una bracciata alla
-mi aveva recato una grande gioia quando mi venne regalato da mamma. Portava sul davanti, sopra il
-frontino, un’aquila di metallo dorato con le ali aperte, ma era stato ridotto ad un cencio durante il furioso
-temporale di qualche giorno prima, quando lo perdetti in montagna e rischiai di perdere insieme anche la
-vita.
-Faticai quel mezzodì del 13 ottobre a trovare il berretto nascosto per gioco e intanto meditavo sul terrore
-di quella sera, delle mie grida di aiuto alla Madonna, sul miracolo dei lampi che mi salvarono, e sulla mia
-promessa...
+volte. Non si trovava più al centro della base del cumulo. Dovetti adattarmi a prendere una bracciata alla mi aveva recato una grande gioia quando mi venne regalato da mamma. Portava sul davanti, sopra il
+frontino, un’aquila di metallo dorato con le ali aperte, ma era stato ridotto ad un cencio durante il furioso temporale di qualche giorno prima, quando lo perdetti in montagna e rischiai di perdere insieme anche la vita.
+Faticai quel mezzodì del 13 ottobre a trovare il berretto nascosto per gioco e intanto meditavo sul terrore di quella sera, delle mie grida di aiuto alla Madonna, sul miracolo dei lampi che mi salvarono, e sulla mia promessa...
 Quando ritrovai il berretto, ebbi d’improvviso la visione che la Madonna stava apparendo a dei bambini
-grandi più o meno come me e vidi che stava compiendo un miracolo .  2
+grandi più o meno come me e vidi che stava compiendo un miracolo .[[2]]
 Temendo d’esser creduto un visionario, tenni il segreto per me. In casa chiesi a mamma se era successo
-qualcosa di importante nel mondo. Andò a prendere il giornale. Nulla. Il dì seguente mi disse che tutti i
-giornali parlavano di Fatima e dei tre fanciulli.
-Molte volte, guardando quel berretto che ancora conservo, penso a quella visione...  .  3
+qualcosa di importante nel mondo. Andò a prendere il giornale. Nulla. Il dì seguente mi disse che tutti i giornali parlavano di Fatima e dei tre fanciulli. Molte volte, guardando quel berretto che ancora conservo, penso a quella visione... .[[ 3]]
 
 Nel frattempo era venuta la guerra e con essa la fame.
 Dopo che l’affezionatissima nonna era morta, i due figli più piccoli, Guido e Giulio, vennero mandati a
-Tambre d’Alpago, paese di origine dei genitori, da uno zio che faceva il contadino, perché lo aiutassero in
-campagna e nella stalla in cambio di un piatto sicuro. Giulio fu riportato a casa dopo poco tempo perché era
-sempre in lacrime per la nostalgia. Guido invece rimase lì, salvo brevi intervalli, per quasi tre anni, ben
-voluto e ben nutrito. Tornò a casa più forte e più sano.
-Nemmeno questa lunga assenza fu sufficiente a fargli recuperare l’affetto della madre che in quel periodo
-aveva visto solo tre volte nonostante la sua casa distasse appena 8 km da quella dello zio: forse assomigliava
-troppo a sua nonna Caterina che lei non sopportava.
+Tambre d’Alpago, paese di origine dei genitori, da uno zio che faceva il contadino, perché lo aiutassero in campagna e nella stalla in cambio di un piatto sicuro. Giulio fu riportato a casa dopo poco tempo perché era sempre in lacrime per la nostalgia. Guido invece rimase lì, salvo brevi intervalli, per quasi tre anni, ben voluto e ben nutrito. Tornò a casa più forte e più sano.
+Nemmeno questa lunga assenza fu sufficiente a fargli recuperare l’affetto della madre che in quel periodo aveva visto solo tre volte nonostante la sua casa distasse appena 8 km da quella dello zio: forse assomigliava troppo a sua nonna Caterina che lei non sopportava.
 Il Cappellano di Farra lo notò per la sua bontà e correttezza e, benché appena dodicenne, gli affidò
 l’incarico di catechista ad una trentina di compagni in vista della Prima Comunione. Gli impartì anche i
 primi elementi di latino.
-Di lì “...l’invito del parroco ad entrare in Seminario, poi la Cresima, l’abbraccio del Vescovo Cattarossi,
-gli studi...”.
+Di lì “...l’invito del parroco ad entrare in Seminario, poi la Cresima, l’abbraccio del Vescovo Cattarossi,gli studi...”.
 Nel 1920 partì per Feltre, dove il Seminario aveva solo le classi inferiori.
-Furono anni duri, in cui patì il freddo e la fame. Vi furono reclami da parte di seminaristi e genitori e,
-dopo successivi controlli della Curia Vescovile di Belluno, le cose andarono meglio.
+Furono anni duri, in cui patì il freddo e la fame. Vi furono reclami da parte di seminaristi e genitori e,dopo successivi controlli della Curia Vescovile di Belluno, le cose andarono meglio.
 Nel Seminario di Feltre ebbe le prime due predizioni riguardanti le future “rivelazioni che avrebbe
 ricevuto da anziano dal Signore sulla Genesi Biblica”.
 La terza la ebbe nel Seminario di Belluno e l’ultima quando già era Cappellano a Dont, piccolo paesino
@@ -466,34 +300,19 @@ missione al mio paese nel 1921, vennero a cercarmi al Santuario di San Vittore, 
 trovavo a passeggio con i miei compagni di Seminario, e insistettero perché andassi con loro per farmi
 frate”.
 
-2
-La visione fu solo visiva, non uditiva. Ciò che il piccolo Guido vide fu l’apparizione della Madonna ai tre pastorelli e il miracolo
-del sole che in quello stesso giorno a Fatima prese a girare davanti a migliaia di persone. Una curiosità: don Guido è nato nel 1907, lo
-stesso anno di Sr. Lucia di Fatima.
+[[2]]:La visione fu solo visiva, non uditiva. Ciò che il piccolo Guido vide fu l’apparizione della Madonna ai tre pastorelli e il miracolo del sole che in quello stesso giorno a Fatima prese a girare davanti a migliaia di persone. Una curiosità: don Guido è nato nel 1907, lo stesso anno di Sr. Lucia di Fatima.
 
-3
-Il ricordo della visione del 13 ottobre del 1917 fece pensare a don Guido, una volta concluse le rivelazioni, che ci fosse una
-relazione fra queste e il terzo segreto di Fatima, visto che la Madonna li aveva in qualche modo associati.
-Proposero al giovane Guido una borsa di studio che comprendeva l’intera retta per tutti gli anni del
-Seminario: vitto, alloggio, libri, tasse scolastiche e la promessa della consacrazione anticipata di un anno
-rispetto alla data prevista dai corsi regolari e quindi la possibilità di celebrare la Messa dodici mesi prima.
+[[3]]:
+Il ricordo della visione del 13 ottobre del 1917 fece pensare a don Guido, una volta concluse le rivelazioni, che ci fosse una relazione fra queste e il terzo segreto di Fatima, visto che la Madonna li aveva in qualche modo associati. Proposero al giovane Guido una borsa di studio che comprendeva l’intera retta per tutti gli anni del Seminario: vitto, alloggio, libri, tasse scolastiche e la promessa della consacrazione anticipata di un anno rispetto alla data prevista dai corsi regolari e quindi la possibilità di celebrare la Messa dodici mesi prima.
 Insistettero a lungo e con tanta benevolenza.
-Guido, allora quattordicenne, ne fu entusiasta perché provava una grande fiducia per questi Padri. Tornato
-in Seminario, corse nello studio del Rettore per comunicargli la notizia. Ma questi gli disse in modo
-perentorio che, se anche fosse uscito solo per prova, non avrebbe più rimesso piede nel Seminario di Feltre.
-Gli ricordò i grandi sforzi economici fatti dalla sua famiglia e la riconoscenza che egli doveva ai suoi parenti
-e ai Superiori e si fece promettere che avrebbe declinato l’invito.
+Guido, allora quattordicenne, ne fu entusiasta perché provava una grande fiducia per questi Padri. Tornato in Seminario, corse nello studio del Rettore per comunicargli la notizia. Ma questi gli disse in modo perentorio che, se anche fosse uscito solo per prova, non avrebbe più rimesso piede nel Seminario di Feltre.
+Gli ricordò i grandi sforzi economici fatti dalla sua famiglia e la riconoscenza che egli doveva ai suoi parenti e ai Superiori e si fece promettere che avrebbe declinato l’invito.
 Guido passò un giorno e una notte in grande angoscia, combattuto dal desiderio di seguire i padri
-francescani e la promessa fatta al Rettore e finì per rinunciare. “Dissi ai Frati che la loro divisa non mi
-piaceva e che la decisione era troppo impegnativa”.
+francescani e la promessa fatta al Rettore e finì per rinunciare. “Dissi ai Frati che la loro divisa non mi piaceva e che la decisione era troppo impegnativa”.
 
-Ripensando a quest’episodio non riusciva a capire come mai fossero venuti da così lontano per fare solo a
-lui questa proposta, dal momento che nel Seminario e nella sua stessa classe c’erano alunni molto più
-intelligenti e preparati di lui. Infatti, nei suoi studi non brillava per profitto. Per questo non si spiegava come
-qualcuno potesse aver interesse a lui.
-Più tardi pensò che il motivo di tanta insistenza dei due Frati fosse dovuto alla loro conoscenza di cose
-future che prudentemente non avevano voluto rivelare. Con l’età gli rimase il rimpianto e il dubbio che
-quell’opportunità gliel’avesse mandata il Signore.
+Ripensando a quest’episodio non riusciva a capire come mai fossero venuti da così lontano per fare solo a lui questa proposta, dal momento che nel Seminario e nella sua stessa classe c’erano alunni molto più
+intelligenti e preparati di lui. Infatti, nei suoi studi non brillava per profitto. Per questo non si spiegava come qualcuno potesse aver interesse a lui.
+Più tardi pensò che il motivo di tanta insistenza dei due Frati fosse dovuto alla loro conoscenza di cose future che prudentemente non avevano voluto rivelare. Con l’età gli rimase il rimpianto e il dubbio che quell’opportunità gliel’avesse mandata il Signore.
 
 L’anno seguente accadde un fatto ancor più singolare: da alcune parole profetiche di un santo Sacerdote
 venne a sapere che Dio lo aveva scelto come strumento per spiegare all’umanità alcuni passi oscuri della
@@ -501,8 +320,6 @@ Bibbia.
 
 Sentiamo quanto egli stesso scrive.
 
-
-4
 
 1922: prima predizione, di San Giovanni Calabria ,del progetto di Dio su don Guido
 
@@ -516,15 +333,7 @@ importante e che avrebbe dovuto scriverlo presto. Solo io, fra i dodici compagni
 –  Lo saprà quell’uno di noi, l’interessato, che il suo libro è
 molto importante? –
 
-4
-S. Giovanni Calabria, figura profetica e grande carismatico della prima metà del XX secolo (1873-1954), fonda nel 1907 a
-Verona la ‘Casa dei Buoni Fanciulli’ per accogliere i giovani in difficoltà, nel 1910 fonda l’ordine delle “Povere Serve alla
-Divina Provvidenza” e infine un ospedale e una casa di riposo. È stato chiamato ‘il Profeta del Volto del Padre’ per la sua totale
-fiducia e abbandono in Dio come Padre buono. La sua Opera infatti è interamente affidata alla Provvidenza, mettendo in pratica
-l’insegnamento del Vangelo. Riteneva urgente irradiare il Vangelo in tutto il mondo per affermare il primato del Regno di Cristo
-e difendere il patrimonio religioso e culturale della Chiesa dei primi secoli. Figura estremamente attiva nella Chiesa, è stato
-beatificato nel 1988 e canonizzato il 18 aprile 1999.
-
+[[4]]:S. Giovanni Calabria, figura profetica e grande carismatico della prima metà del XX secolo (1873-1954), fonda nel 1907 a Verona la ‘Casa dei Buoni Fanciulli’ per accogliere i giovani in difficoltà, nel 1910 fonda l’ordine delle “Povere Serve alla Divina Provvidenza” e infine un ospedale e una casa di riposo. È stato chiamato ‘il Profeta del Volto del Padre’ per la sua totale fiducia e abbandono in Dio come Padre buono. La sua Opera infatti è interamente affidata alla Provvidenza, mettendo in pratical’insegnamento del Vangelo. Riteneva urgente irradiare il Vangelo in tutto il mondo per affermare il primato del Regno di Cristo e difendere il patrimonio religioso e culturale della Chiesa dei primi secoli. Figura estremamente attiva nella Chiesa, è stato beatificato nel 1988 e canonizzato il 18 aprile 1999.
 
 Dal corridoio mi giunse la voce di don Calabria:
 
@@ -537,35 +346,24 @@ riguardava la Bibbia, la Genesi biblica. Poi chiese:
 Tacqui nel timore di aver commesso un’impertinenza. Ripetè l’interrogazione. Un compagno disse il mio
 nome. C’era un mio omonimo. Uno m’indicò col dito. Egli mi guardò, poi guardò tra i banchi il mio
 omonimo che era il più bravo della classe. E poiché dell’altro don Giovanni Calabria aveva predetto che
-avrebbe cambiato strada, disse:
-– Ho capito. So io quale dei due. – Quello divenne il beniamino; io, secondo il Rettore, ero quello che
-avrebbe cambiato strada. Accadde il contrario.
-Il Rettore pagò d’allora in poi per ‘l’omonimo’ la retta di tasca sua. E poiché don Calabria aveva predetto
-che ‘l’altro’ sarebbe uscito dal Seminario, il chierico Guido fu trattato in seguito con molta freddezza e
-sufficienza.
+avrebbe cambiato strada, disse: – Ho capito. So io quale dei due. – Quello divenne il beniamino; io, secondo il Rettore, ero quello che avrebbe cambiato strada. Accadde il contrario.
+Il Rettore pagò d’allora in poi per ‘l’omonimo’ la retta di tasca sua. E poiché don Calabria aveva predetto che ‘l’altro’ sarebbe uscito dal Seminario, il chierico Guido fu trattato in seguito con molta freddezza e sufficienza.
 
 
 51928: seconda predizione, di padre Matteo Crawley
 
-Finito il ginnasio a Feltre, il giovane Guido si trasferì, con altri Seminaristi della provincia, al Seminario
-di Belluno dove vi erano solo le classi superiori.
+Finito il ginnasio a Feltre, il giovane Guido si trasferì, con altri Seminaristi della provincia, al Seminario di Belluno dove vi erano solo le classi superiori.
 Passarono gli anni e Guido crebbe meditando sempre le parole di don Calabria nel suo cuore. Leggiamo
 ancora quello che accadde poi:
-Nel 1928, all’inizio del secondo anno di teologia, Padre Matteo Crawley tenne un ritiro per tutti i chierici
-e predisse a ciascuno, senza nominarlo ma fissandolo negli occhi, il suo avvenire.
+Nel 1928, all’inizio del secondo anno di teologia, Padre Matteo Crawley tenne un ritiro per tutti i chierici e predisse a ciascuno, senza nominarlo ma fissandolo negli occhi, il suo avvenire.
 Fra gli altri ricordo che disse di uno, intelligente e buono, che sarebbe salito ai più alti gradi della
-gerarchia ecclesiastica. Dai brevi connotati, molti capirono, compreso egli stesso, che si riferiva ad Albino
-Luciani che allora faceva la prima o la seconda liceo. Poi, dopo una breve pausa, soggiunse: “Ooooh..!
-Ahimè..! Ma durerà poco!”.
+gerarchia ecclesiastica. Dai brevi connotati, molti capirono, compreso egli stesso, che si riferiva ad Albino Luciani che allora faceva la prima o la seconda liceo. Poi, dopo una breve pausa, soggiunse: “Ooooh..! Ahimè..! Ma durerà poco!”.
 Guardò anche me e disse, fissandomi negli occhi, che uno di noi avrebbe ricevuto una rivelazione sui
-punti oscuri della Genesi Biblica. Descrisse in breve la mia vita dicendomi che avrei avuto molto da soffrire,
-anche per l’incomprensione dei miei confratelli e dei miei Superiori.
+punti oscuri della Genesi Biblica. Descrisse in breve la mia vita dicendomi che avrei avuto molto da soffrire,anche per l’incomprensione dei miei confratelli e dei miei Superiori.
 Non avevo più dubbi: il Signore, malgrado le mie molte insufficienze, mi guidava al Suo scopo.
-Padre Matteo Crawley gli preannunciò anche che avrebbe subìto un furto. A quale furto si riferisse non lo
-seppe mai. Solo in vecchiaia pensò che si fosse trattato del dizionario dei toponimi che egli aveva composto
-con grande fatica e che gli fu sottratto dalla sua casa di Farra.
+Padre Matteo Crawley gli preannunciò anche che avrebbe subìto un furto. A quale furto si riferisse non lo seppe mai. Solo in vecchiaia pensò che si fosse trattato del dizionario dei toponimi che egli aveva composto con grande fatica e che gli fu sottratto dalla sua casa di Farra.
 
-5
+[[5]]
 
 Padre Matteo Crawley-Boewey (1875-1960), di origine peruviana, ma residente in Cile, apparteneva alla Congregazione dei Sacri
 Cuori di Gesù e di Maria. Grande carismatico con doni di profezia, comprese, meditando le rivelazioni di santa Margherita Maria
@@ -583,8 +381,7 @@ sospettoso e diffidente con il prossimo.
 Il suo voler sapere sempre il come e il perché delle cose, aveva dato al giovane Guido fama di contestatore e
 per gli insegnanti era un alunno scomodo.
 In un esame, presieduto dal Vescovo Cattarossi, si presentò la solita situazione di prevenzione
-dell’esaminatore che, posta la domanda al giovane Guido, cominciò a parlare senza dargli la possibilità di
-aprir bocca, nonostante egli cercasse con la mano di interromperlo per esporre egli stesso.
+dell’esaminatore che, posta la domanda al giovane Guido, cominciò a parlare senza dargli la possibilità di aprir bocca, nonostante egli cercasse con la mano di interromperlo per esporre egli stesso.
 Il professore fece per accomiatarlo e propose un voto sufficiente, ma basso.
 Il Vescovo intervenne:
 – Ora voglio sentire lui, gli faccia un’altra domanda. –
@@ -594,6 +391,7 @@ Guido ne fu molto incoraggiato perché comprese d’essere stimato dal suo Vesco
 
 
 6
+
 1932: terza predizione, di mons. Gaetano Masi
 
 Vi fu tuttavia fra i suoi Superiori chi lo considerava e lo vedeva con gli occhi del Signore.
@@ -607,29 +405,20 @@ modestia e umiltà, col cuore pieno d’attesa e di riconoscente abbandono nella
 accettare la Volontà di Dio tutta intera.
 Ma i dolori non gli furono risparmiati neanche il giorno della sua Consacrazione, il 31 gennaio 1932,
 giorno che egli attendeva con molta emozione insieme ad altri sei consacrandi.
-Era felice e compreso della grandezza di quanto stava compiendosi. Arrivò il suo turno e il Rettore disse
-al Vescovo Cattarossi:
+Era felice e compreso della grandezza di quanto stava compiendosi. Arrivò il suo turno e il Rettore disse al Vescovo Cattarossi:
 – Ecco il contestatore! –
 Il Vescovo, che lo stimava, ne fu palesemente addolorato.
 Il giovane Guido gli disse sottovoce:
 – Non si rattristi! –
 Il Vescovo capì e gli sorrise.
-Quella festa che doveva esser un tripudio di gioia fu invece sciupata dalla tristezza. Tuttavia in cuor suo
-era certo, certissimo, della sua vocazione, consapevole già allora che stava portando la croce con Gesù.
+Quella festa che doveva esser un tripudio di gioia fu invece sciupata dalla tristezza. Tuttavia in cuor suo era certo, certissimo, della sua vocazione, consapevole già allora che stava portando la croce con Gesù.
 
-6
-Nato a Vallesella di Cadore nel 1870, si laureò in filosofia e teologia a Bologna e in ‘utroque iure’ a Roma. Nel 1895 divenne
-insegnante di dogmatica al seminario di Belluno. Rimosso dalla sua cattedra da Pio X per le sue idee moderniste espresse sul
-settimanale cattolico ‘La Domenica’ di cui era direttore, si trasferì prima a Monaco di Baviera, poi a Vienna alle dipendenze dell’
-‘Opera Bonomelli’ per dedicarsi all’assistenza spirituale degli emigrati. Nel 1913 venne richiamato a Belluno dal vescovo Cattarossi
-che lo designò l’anno successivo vicario generale della diocesi. Nel 1919 gli venne assegnata la cattedra di dogmatica, catechetica e
-teologia pastorale nel seminario di Belluno alla quale rinunciò dopo un decennio per dedicarsi totalmente alla direzione spirituale dei
-seminaristi, fra i quali il chierico Guido. La sua spiritualità verteva principalmente sulla ‘Consecratio Mundi’ a Cristo Re. Il suo
-motto era: “Fatevi santi senza riserve! Buttate via il pessimismo e abbiate fiducia nella liberazione globale! Cristo infatti non ha solo
+[[6]]: Nato a Vallesella di Cadore nel 1870, si laureò in filosofia e teologia a Bologna e in ‘utroque iure’ a Roma. Nel 1895 divenne insegnante di dogmatica al seminario di Belluno. Rimosso dalla sua cattedra da Pio X per le sue idee moderniste espresse sul settimanale cattolico ‘La Domenica’ di cui era direttore, si trasferì prima a Monaco di Baviera, poi a Vienna alle dipendenze dell’
+‘Opera Bonomelli’ per dedicarsi all’assistenza spirituale degli emigrati. Nel 1913 venne richiamato a Belluno dal vescovo Cattarossi che lo designò l’anno successivo vicario generale della diocesi. Nel 1919 gli venne assegnata la cattedra di dogmatica, catechetica e teologia pastorale nel seminario di Belluno alla quale rinunciò dopo un decennio per dedicarsi totalmente alla direzione spirituale dei
+seminaristi, fra i quali il chierico Guido. La sua spiritualità verteva principalmente sulla ‘Consecratio Mundi’ a Cristo Re. Il suo motto era: “Fatevi santi senza riserve! Buttate via il pessimismo e abbiate fiducia nella liberazione globale! Cristo infatti non ha solo
 salvato le anime, ma anche i corpi, riconsacrando in radice tutte le realtà terrestri”. Morì improvvisamente come un santo nel 1936.
 Non vi è dubbio che Mons. Masi ebbe un ruolo importante nella formazione di don Guido.
-Il 2 febbraio del 1932 celebrò la sua prima Messa. Questa data fu ricordata da lui negli anni come la più
-importante della sua vita e ad ogni anniversario era preso da grande commozione.
+Il 2 febbraio del 1932 celebrò la sua prima Messa. Questa data fu ricordata da lui negli anni come la più importante della sua vita e ad ogni anniversario era preso da grande commozione.
 
 
 Don Guido Sacerdote
@@ -637,193 +426,119 @@ Don Guido Sacerdote
 Don Guido fu subito mandato cappellano a Fusine, frazione di Zoldo Alto in provincia di Belluno, dove
 rimase fino al 1934 quando fu nominato Parroco a Dont, frazione di Forno di Zoldo, a pochi chilometri di
 distanza dalla sede precedente.
-Vi rimase dieci anni, dando tutto se stesso ai suoi parrocchiani e al restauro della chiesa che aveva urgente
-bisogno di un tetto nuovo e di altri interventi di manutenzione.
+Vi rimase dieci anni, dando tutto se stesso ai suoi parrocchiani e al restauro della chiesa che aveva urgente bisogno di un tetto nuovo e di altri interventi di manutenzione.
 
-7 Quarta predizione, di Teresa Neumann
+Quarta predizione, di Teresa Neumann [[7]]
 
 Don Guido ebbe anche un altro incontro significativo che può aggiungersi alle predizioni avute in
 Seminario: fu la visita di Teresa Neumann che venne appositamente dalla Germania fino a Dont per
-conoscerlo  .  8
+conoscerlo  .  [[8]]
 Egli ne aveva già sentito parlare, ed aveva anche acquistato un paio di libri che parlavano di lei. Ma
-quando ella si presentò alla porta della sua canonica, a piedi, vestita con modestia e con un fazzoletto in
-testa, lì per lì non la riconobbe.
-Infatti, al suo saluto in tedesco, don Guido le chiese, sempre in tedesco, chi fosse e come mai fosse
-arrivata fin lassù.
+quando ella si presentò alla porta della sua canonica, a piedi, vestita con modestia e con un fazzoletto intesta, lì per lì non la riconobbe. Infatti, al suo saluto in tedesco, don Guido le chiese, sempre in tedesco, chi fosse e come mai fosse arrivata fin lassù.
 Ella si presentò e soggiunse che “desiderava conoscere l’uomo sul quale Dio aveva grandi progetti di
 Misericordia”. Certamente Teresa Neumann alludeva all’intera umanità. Don Guido invece pensò che la
 Misericordia fosse rivolta a lui e, sentendosi gran peccatore, rispose:
 – Preferirei non provocare la Sua Giustizia. –
 Ella sorrise e gli disse:
-– Quando il Signore le parlerà scriva tutto, proprio tutto! Il Signore le vuole molto bene. – E, dopo una
-breve pausa, aggiunse:
+– Quando il Signore le parlerà scriva tutto, proprio tutto! Il Signore le vuole molto bene. – E, dopo una breve pausa, aggiunse:
 – Lei avrà molto da soffrire. –
 Egli le offrì da mangiare. Teresa declinò l’invito: non volle nemmeno un uovo a bere. A quel tempo ella
 viveva unicamente d’Eucarestia, ma non lo disse. Gli chiese solo un posto per la notte. Don Guido, però,
 volendo obbedire al Vescovo che aveva emanato una circolare nella quale si ordinava di non ospitare
-nessuno nelle canoniche per la notte, specialmente donne, le disse che non poteva e la invitò a proseguire per
-altri 3 o 4 km dove il Parroco di Fusine poteva ospitarla in una piccola foresteria distaccata dalla canonica.
-Ella vi andò e vi pernottò.
+nessuno nelle canoniche per la notte, specialmente donne, le disse che non poteva e la invitò a proseguire per altri 3 o 4 km dove il Parroco di Fusine poteva ospitarla in una piccola foresteria distaccata dalla canonica.Ella vi andò e vi pernottò.
 Il mattino seguente accadde un fatto strano. Don Guido stava celebrando la S. Messa. Poco prima della
 Comunione, mentre diceva “Agnus Dei qui tollis peccata mundi...”, la Particola che teneva tra le dita
 improvvisamente scomparve.
 
-7
-Teresa Neumann di Konnersreuth (1898-1962), è riconosciuta come la grande mistica stimmatizzata bavarese del XX secolo.
-Contadina di nascita, rimase cieca e paralitica per un incidente poco più che ventenne e venne miracolata nel 1927 per intercessione
-di S. Teresa di Lisieux. Per 36 anni, fino alla sua morte, visse di sola Eucaristia, senza mai toccare né cibo, né acqua. Ogni settimana
-riviveva la Passione di Cristo perdendo, il venerdì, quattro chili di peso per riacquistarli la domenica senza toccare cibo. Fu oggetto di
-studio per molti medici. Parlava, pur senza istruzione, in greco, latino e aramaico. Tenne un’affettuosa corrispondenza con Padre Pio
-da Pietrelcina. Morì in concetto di santità. È in corso la sua causa di beatificazione.
+[[7]]:Teresa Neumann di Konnersreuth (1898-1962), è riconosciuta come la grande mistica stimmatizzata bavarese del XX secolo.Contadina di nascita, rimase cieca e paralitica per un incidente poco più che ventenne e venne miracolata nel 1927 per intercessione di S. Teresa di Lisieux. Per 36 anni, fino alla sua morte, visse di sola Eucaristia, senza mai toccare né cibo, né acqua. Ogni settimana
+riviveva la Passione di Cristo perdendo, il venerdì, quattro chili di peso per riacquistarli la domenica senza toccare cibo. Fu oggetto di studio per molti medici. Parlava, pur senza istruzione, in greco, latino e aramaico. Tenne un’affettuosa corrispondenza con Padre Pio da Pietrelcina. Morì in concetto di santità. È in corso la sua causa di beatificazione.
 
-8
-La data è incerta perché nei suoi appunti non è precisata. Di certo si sa solo che fu tra il 1934 e il 1945, anni in cui don Guido fu
-parroco a Dont.
+[[8]]:
+La data è incerta perché nei suoi appunti non è precisata. Di certo si sa solo che fu tra il 1934 e il 1945, anni in cui don Guido fu parroco a Dont.
 Lui e le donne della prima fila la cercarono ovunque, inutilmente.
 Tutti furono testimoni di quella sparizione e nessuno capì.
 L’indomani don Guido incontrò il parroco di Fusine presso cui era stata ospite Teresa Neumann e gli
-chiese se era venuta da lui una donna. Egli rispose di sì ed aggiunse che non gli era piaciuta perché gli aveva
-fatto dei rimproveri. Disse anche che, durante la Messa, le aveva chiesto se volesse fare la Comunione ed ella
-gli aveva risposto che l’aveva già fatta.
+chiese se era venuta da lui una donna. Egli rispose di sì ed aggiunse che non gli era piaciuta perché gli aveva fatto dei rimproveri. Disse anche che, durante la Messa, le aveva chiesto se volesse fare la Comunione ed ella gli aveva risposto che l’aveva già fatta.
 Il Parroco di Fusine aggiunse d’averla guardata commiserandola poiché non si era mossa di lì. Don Guido
-però capì.
-Si dice che Teresa Neumann non sia mai uscita dal Reich. Che fosse venuta a Dont in bilocazione? Don
-Guido non seppe dare una risposta a questo interrogativo.
+però capì. Si dice che Teresa Neumann non sia mai uscita dal Reich. Che fosse venuta a Dont in bilocazione? Don Guido non seppe dare una risposta a questo interrogativo.
 
 
-Don Guido, Curato a Casso (in provincia di Pordenone, ma nella diocesi di Belluno)
+#### Don Guido, Curato a Casso (in provincia di Pordenone, ma nella diocesi di Belluno)
 
 Nel 1945 fu mandato Curato a Casso, un paesino che si trova sopra la diga del Vajont, ai confini della
 provincia di Belluno con quella di Pordenone, cioè tra il Veneto e il Friuli Venezia Giulia.
 Al tempo della Repubblica Veneta, Casso era stato per secoli un luogo di confino, un bagno penale della
-Serenissima, dove venivano mandati i detenuti politici e comuni, le prostitute, gli indesiderabili di ogni
-provenienza e gli ex-galeotti dàlmati che non potevano più esser impiegati come rematori sulle galere. I
-confinati non potevano uscire dal limite territoriale ben picchettato e sorvegliato dai soldati della Repubblica.
-Dentro questi limiti potevano fare ciò che volevano, anche giustizia personale.
+Serenissima, dove venivano mandati i detenuti politici e comuni, le prostitute, gli indesiderabili di ogni provenienza e gli ex-galeotti dàlmati che non potevano più esser impiegati come rematori sulle galere. I confinati non potevano uscire dal limite territoriale ben picchettato e sorvegliato dai soldati della Repubblica. Dentro questi limiti potevano fare ciò che volevano, anche giustizia personale.
 Gente difficile, dunque, di un paese povero, poverissimo, dove si allevavano i cinghiali al posto dei
 maiali, dove le case non erano intonacate, dove talvolta famiglie di due o tre generazioni vivevano in
-un’unica stanza e dove poteva accadere che ragazzine di dodici anni partorissero figli illegittimi, talvolta
-frutto di incesti.
-In questo contesto don Guido ebbe molto da lavorare e ovviamente gli fu opposta molta resistenza. La sua
-sincerità dal pulpito gli procurò non pochi nemici. Molti furono gli attentati alla sua vita, ma nessuno riuscì.
+un’unica stanza e dove poteva accadere che ragazzine di dodici anni partorissero figli illegittimi, talvolta frutto di incesti. In questo contesto don Guido ebbe molto da lavorare e ovviamente gli fu opposta molta resistenza. La sua sincerità dal pulpito gli procurò non pochi nemici. Molti furono gli attentati alla sua vita, ma nessuno riuscì.
 Ne ricordo uno.
 
-In una notte piuttosto buia gli fu teso un tranello. Fu invitato ad uscire dalla canonica col falso pretesto di
-un’Estrema Unzione. Ignaro del pericolo che lo attendeva, si avviò passando per un vicolo stretto tra un alto
-muro e una casa. All’improvviso vide un’ombra scura e minacciosa sul muro.
-Fece un passo indietro e una figura alta, forte, pesante, balzò giù con un impeto tale che sbattè la testa con
-un botto sordo contro la casa. L’attentatore cadde svenuto e rimase in coma per alcuni giorni. Il destinatario
-dell’impatto doveva essere don Guido.
+In una notte piuttosto buia gli fu teso un tranello. Fu invitato ad uscire dalla canonica col falso pretesto diun’Estrema Unzione. Ignaro del pericolo che lo attendeva, si avviò passando per un vicolo stretto tra un altomuro e una casa. All’improvviso vide un’ombra scura e minacciosa sul muro.
+Fece un passo indietro e una figura alta, forte, pesante, balzò giù con un impeto tale che sbattè la testa con un botto sordo contro la casa. L’attentatore cadde svenuto e rimase in coma per alcuni giorni. Il destinatario dell’impatto doveva essere don Guido.
 L’indomani la gente scrutava il Curato incredula e sorpresa chiedendosi quale stella mai lo avesse
 protetto. Segno che era stata una piccola congiura.
-Durante la sua esistenza don Guido subì ventitrè attentati, in ognuno dei quali rischiò di perdere la vita.
-Da questo si può capire quanto grande fosse il progetto che Dio aveva su di lui e quanto lo amasse per dargli
-tanta protezione.
+Durante la sua esistenza don Guido subì ventitrè attentati, in ognuno dei quali rischiò di perdere la vita. Da questo si può capire quanto grande fosse il progetto che Dio aveva su di lui e quanto lo amasse per dargli tanta protezione.
 La parrocchia, per quanto turbolenta, era piccola, per cui a don Guido restava molto tempo per studiare.
 Risparmiando in ogni spesa, cominciò ad acquistare libri e pubblicazioni che parlavano della comparsa
-dell’uomo sulla Terra e delle scoperte scientifiche riguardo all’evoluzione. Dedicava tutto il tempo libero alle
-sue ricerche.
-
+dell’uomo sulla Terra e delle scoperte scientifiche riguardo all’evoluzione. Dedicava tutto il tempo libero alle sue ricerche.
 Nel primo anno del suo ministero a Casso egli ebbe un sogno profetico.
 Vide, con 18 anni d’anticipo, l’enorme frana staccarsi dal monte Toc, invadere il bacino del lago del
-Vajont e l’acqua tracimare con forza oltre la diga e incanalarsi spaventosamente per la stretta e ripida valle
-che porta a Longarone. Vide la massa d’acqua scendere precipitosamente a zig-zag verso il paese e spazzare
-via case, strade, piazze, chiesa, municipio, cimitero... quindi l’enorme distesa piatta e gialla di limo ricoprire
-ogni cosa appiattendo tutto. Vide i morti e quelli che stavano per morire mentre annaspavano disperatamente
-fra gli spasimi cercando di salvarsi. Ne riconobbe molti, fra i quali anche l’Arciprete di Longarone mons.
-Bortolo Làrese e il suo cappellano e parente don Lorenzo Làrese.
-Sconvolto, cercò di responsabilizzare i paesi interessati inviando ai rispettivi sindaci e parroci lettere
-circostanziate. Descrisse perfino la linea di demarcazione tra le case che sarebbero state travolte e quelle che
-sarebbero rimaste illese. Ma, a quell’epoca, la diga e il lago del Vajont non c’erano ancora e, dunque, non fu
-preso seriamente. Tutti ne risero, ma molti di costoro persero la vita diciott’anni dopo.
-Incominciava così per don Guido il calvario di essere considerato un personaggio strano.
+Vajont e l’acqua tracimare con forza oltre la diga e incanalarsi spaventosamente per la stretta e ripida valle che porta a Longarone. Vide la massa d’acqua scendere precipitosamente a zig-zag verso il paese e spazzare via case, strade, piazze, chiesa, municipio, cimitero... quindi l’enorme distesa piatta e gialla di limo ricoprire ogni cosa appiattendo tutto. Vide i morti e quelli che stavano per morire mentre annaspavano disperatamente fra gli spasimi cercando di salvarsi. Ne riconobbe molti, fra i quali anche l’Arciprete di Longarone mons.Bortolo Làrese e il suo cappellano e parente don Lorenzo Làrese. Sconvolto, cercò di responsabilizzare i paesi interessati inviando ai rispettivi sindaci e parroci letterecircostanziate. Descrisse perfino la linea di demarcazione tra le case che sarebbero state travolte e quelle chesarebbero rimaste illese. Ma, a quell’epoca, la diga e il lago del Vajont non c’erano ancora e, dunque, non fu preso seriamente. Tutti ne risero, ma molti di costoro persero la vita diciott’anni dopo. Incominciava così per don Guido il calvario di essere considerato un personaggio strano.
 Don Guido però non rivelò nelle sue lettere e nei suoi appunti la descrizione di una scena che, nella
 medesima visione, precedeva la catastrofe e che mi raccontò a viva voce. Vide snodarsi lungo le vie di
-Longarone una processione formata da alcuni giovinastri che portavano infilati su bastoni i genitali di bovini
-raccolti al macello comunale intonando frasi blasfeme e irripetibili sull’aria delle Litanie Lauretane: “Santa...,
-ora pro nobis” con evidente atteggiamento di scherno. Dedusse che l’episodio avvenne qualche ora prima della
-caduta della frana dalla luce del tramonto della scena che vide.
-Il fatto che il Signore abbia fatto vedere a don Guido la catastrofe in stretta sequenza logica con quella
-infelice e blasfema processione ci spinge a credere che fra i due eventi ci fosse un nesso per far capire a noi
-uomini come un nostro comportamento irrispettoso possa alienarci la protezione di Dio.
-Dio non castiga: Dio, quando viene respinto, solamente si astiene dalla Sua protezione nel rispetto della
-libertà che ha dato all’uomo.
+Longarone una processione formata da alcuni giovinastri che portavano infilati su bastoni i genitali di boviniraccolti al macello comunale intonando frasi blasfeme e irripetibili sull’aria delle Litanie Lauretane: “Santa...,ora pro nobis” con evidente atteggiamento di scherno. Dedusse che l’episodio avvenne qualche ora prima della caduta della frana dalla luce del tramonto della scena che vide.
+Il fatto che il Signore abbia fatto vedere a don Guido la catastrofe in stretta sequenza logica con quella infelice e blasfema processione ci spinge a credere che fra i due eventi ci fosse un nesso per far capire a noi uomini come un nostro comportamento irrispettoso possa alienarci la protezione di Dio.
+Dio non castiga: Dio, quando viene respinto, solamente si astiene dalla Sua protezione nel rispetto dellalibertà che ha dato all’uomo.
 Don Guido tuttavia ripeteva:
 “È improprio chiamarlo castigo di Dio perché Dio non è vendicativo. Non è Dio che manda i castighi,
-anche se questo è il termine che usa la Bibbia per far intendere che tra due fatti c’è un nesso di causa-
-effetto. Il castigo ce lo diamo noi stessi perché è la naturale conseguenza dell’allontanamento dalla
-protezione di Dio. Purtroppo in questi casi vengono coinvolti degli innocenti. Ma la colpa non è di Dio.
-Anzi, stiamone certi, Dio è vicino alle vittime innocenti e spiritualmente le sostiene. Dio ha a cuore la
-salvezza di tutti, quella eterna. Inoltre, la parte più pesante della sofferenza, specialmente quella degli
-innocenti, la porta Lui stesso. Certo è che se il Signore mal sopporta che Lo si bestemmi, non permette che
-s’insulti la Vergine Immacolata!”.
+anche se questo è il termine che usa la Bibbia per far intendere che tra due fatti c’è un nesso di causa-effetto. Il castigo ce lo diamo noi stessi perché è la naturale conseguenza dell’allontanamento dalla protezione di Dio. Purtroppo in questi casi vengono coinvolti degli innocenti. Ma la colpa non è di Dio.
+Anzi, stiamone certi, Dio è vicino alle vittime innocenti e spiritualmente le sostiene. Dio ha a cuore la salvezza di tutti, quella eterna. Inoltre, la parte più pesante della sofferenza, specialmente quella degli innocenti, la porta Lui stesso. Certo è che se il Signore mal sopporta che Lo si bestemmi, non permette che s’insulti la Vergine Immacolata!”.
 Ovviamente il cedimento del Monte Toc era già in corso da mesi. È chiaro che non si può attribuire a Dio
 l’improvviso franamento perché è un fatto naturale.
-La protezione di Dio non evita le calamità naturali, ma può evitare che si assommino gli errori umani e, in
-particolare, che le persone arrivino alla conclusione della loro vita impreparate.
-Al tempo della sciagura del Vajont, avvenuta nella tarda serata del 9 ottobre del 1963, don Guido da dieci
-anni era partito da Casso ed erano passati diciott’anni dalla visione. Molti avevano dimenticato la sua
-profezia ed erano andati incontro alla morte.
-La celebrazione della S. Messa con San Pio da Pietrelcina
+La protezione di Dio non evita le calamità naturali, ma può evitare che si assommino gli errori umani e, in particolare, che le persone arrivino alla conclusione della loro vita impreparate.
+Al tempo della sciagura del Vajont, avvenuta nella tarda serata del 9 ottobre del 1963, don Guido da dieci anni era partito da Casso ed erano passati diciott’anni dalla visione. Molti avevano dimenticato la sua profezia ed erano andati incontro alla morte.
 
-Partito da Casso nel lontano 1953, si ritirò a Farra per due anni accanto alla mamma anziana e malata che
-nel frattempo era rimasta sola perché l’altro figlio, Giulio, si era sposato.
+#### La celebrazione della S. Messa con San Pio da Pietrelcina
+
+Partito da Casso nel lontano 1953, si ritirò a Farra per due anni accanto alla mamma anziana e malata che nel frattempo era rimasta sola perché l’altro figlio, Giulio, si era sposato.
 Fu durante questo periodo che si recò a San Giovanni Rotondo per incontrare Padre Pio.
 Al suo arrivo provò dapprima una delusione: il Frate, che ormai da anni attirava in quel luogo numerosi
 Quando ormai era deciso a rinunciare all’incontro e a ritornarsene a casa, fu avvicinato spontaneamente
 da Padre Pio che lo invitò per l’indomani a celebrare insieme a lui la S. Messa.
 Non fu una concelebrazione come la conosciamo ai giorni nostri per cui i Sacerdoti concelebrano sullo
-stesso altare. Padre Pio invitò don Guido a celebrare su di un altare laterale, seguendo però all’unisono gli
-stessi atti e le stesse preghiere.
+stesso altare. Padre Pio invitò don Guido a celebrare su di un altare laterale, seguendo però all’unisono gli stessi atti e le stesse preghiere.
 Durante la Messa, che durò più di due ore, Padre Pio si rivolse più volte a don Guido con tono robusto
 dicendogli:
 – Vada più piano, vada più piano! –
-Non era infatti nello stile di don Guido avere lunghe pause, nonostante celebrasse sempre la S. Messa con
-calma e grande devozione. Tornò a casa più sereno.
+Non era infatti nello stile di don Guido avere lunghe pause, nonostante celebrasse sempre la S. Messa con calma e grande devozione. Tornò a casa più sereno.
 
 
-I luoghi nei quali sono avvenute le rivelazioni
+#### I luoghi nei quali sono avvenute le rivelazioni
 
 Dopo questi due anni di aspettativa, nel 1955 venne mandato Parroco a Chies d’Alpago, un altro paesino
-della provincia di Belluno, in alto e all’estremo limite del bellissimo anfiteatro della Valle d’Alpago ai cui
-piedi, in riva al lago di S. Croce, c’era Farra e a Farra la sua casa paterna dove abitava ancora la sua vecchia
-madre, sempre più anziana e malata, che morirà nel gennaio del 1970. Spesso, nella bella stagione, vi
-scendeva in bicicletta o in corriera. Mai ebbe un mezzo di trasporto proprio né una perpetua. Ogni suo
-risparmio era per la chiesa o per i suoi libri di studio.
+della provincia di Belluno, in alto e all’estremo limite del bellissimo anfiteatro della Valle d’Alpago ai cui piedi, in riva al lago di S. Croce, c’era Farra e a Farra la sua casa paterna dove abitava ancora la sua vecchia madre, sempre più anziana e malata, che morirà nel gennaio del 1970. Spesso, nella bella stagione, vi scendeva in bicicletta o in corriera. Mai ebbe un mezzo di trasporto proprio né una perpetua. Ogni suo risparmio era per la chiesa o per i suoi libri di studio.
 Rimase Parroco di Chies d’Alpago per più di vent’anni, fino al 1976. Fu durante la sua permanenza a
-Chies d’Alpago che don Guido ebbe quasi tutte le rivelazioni, sia sotto forma di ‘locuzioni interiori’, che di
-‘sogni profetici’ e di ‘visioni in stato di veglia’.
+Chies d’Alpago che don Guido ebbe quasi tutte le rivelazioni, sia sotto forma di ‘locuzioni interiori’, che di ‘sogni profetici’ e di ‘visioni in stato di veglia’.
 Solo la rivelazione del ‘peccato originale’ l’ebbe nella casa paterna a Farra d’Alpago.
 Intanto andava nascendo in lui la convinzione di essere indegno agli occhi del Signore dal momento che
 quanto gli era stato predetto in gioventù non si era ancora avverato.
 Ma i tempi del Signore non sono i nostri... Ed ecco che all’improvviso, quando le innumerevoli
 mortificazioni avevano temprato il suo animo e la sua fede, il Signore arrivò al Suo appuntamento.
 Tutte le otto rivelazioni avvennero fra il 1968 e il 1974.
-Per tutta la vita, prima delle rivelazioni, egli si era tormentato nel tentativo di risolvere razionalmente i
-quesiti esistenziali dell’uomo, come la presenza del dolore che la Bibbia considerava una colpa ereditata dal
-peccato originale.
+Per tutta la vita, prima delle rivelazioni, egli si era tormentato nel tentativo di risolvere razionalmente i quesiti esistenziali dell’uomo, come la presenza del dolore che la Bibbia considerava una colpa ereditata dal peccato originale.
 “Ma, com’è possibile ereditare una colpa? – si chiedeva don Guido. – Si possono ereditare solo le
-conseguenze di una colpa. Ma quale poteva essere questa colpa per lasciare delle conseguenze anche fisiche
-sull’uomo?”
-Egli sentiva che c’era, al di là di questi interrogativi, un vuoto di conoscenza perché se Dio è Giustizia,
-oltre che Misericordia infinita, il principio dell’eredità della colpa è inaccettabile. Si diceva convinto che
-quando l’uomo non capisce l’operato del Signore è perché non conosce completamente i fatti che la
-Provvidenza, per carità, ha celato nel mistero. Don Guido, nella sua totale fiducia in Dio, mai aveva dubitato
-della Sua Misericordia, e neppure della Sua Parola depositata nella Bibbia e soleva ripetere le parole di Isaia
-(55, 10-11): “Come la pioggia e la neve scendono dal cielo e non vi ritornano senza aver irrorato la terra,
-senza averla fecondata e fatta germogliare perché dia il seme al seminatore e pane da mangiare, così sarà
-della Parola uscita dalla bocca di Dio: non tornerà a Lui senza effetto, senza aver operato ciò che Egli
-desidera e senza avere compiuto ciò per cui l’ha mandata”.
+conseguenze di una colpa. Ma quale poteva essere questa colpa per lasciare delle conseguenze anche fisiche sull’uomo?”
+Egli sentiva che c’era, al di là di questi interrogativi, un vuoto di conoscenza perché se Dio è Giustizia, oltre che Misericordia infinita, il principio dell’eredità della colpa è inaccettabile. Si diceva convinto che quando l’uomo non capisce l’operato del Signore è perché non conosce completamente i fatti che la Provvidenza, per carità, ha celato nel mistero. Don Guido, nella sua totale fiducia in Dio, mai aveva dubitato della Sua Misericordia, e neppure della Sua Parola depositata nella Bibbia e soleva ripetere le parole di Isaia (55, 10-11): “Come la pioggia e la neve scendono dal cielo e non vi ritornano senza aver irrorato la terra, senza averla fecondata e fatta germogliare perché dia il seme al seminatore e pane da mangiare, così sarà della Parola uscita dalla bocca di Dio: non tornerà a Lui senza effetto, senza aver operato ciò che Egli desidera e senza avere compiuto ciò per cui l’ha mandata”.
 Con don Guido si apre un periodo nuovo nel rapporto dell’umanità con Dio, nel quale Dio vuole essere
 anzitutto conosciuto per essere amato in modo consapevole non solo col cuore ma anche con un’adesione
 completa della mente.
+
 Il Signore rassicura don Guido, preoccupato di non saper essere un testimone fedele: – TI AIUTERÒ A
 RICORDARE E A CAPIRE. –
-Ciò significa che l’azione dello Spirito Santo non si esaurisce col primo tentativo di don Guido di mettere
-per iscritto quanto ha appreso.
+Ciò significa che l’azione dello Spirito Santo non si esaurisce col primo tentativo di don Guido di mettere per iscritto quanto ha appreso.
 Non è una semplice trascrizione che Dio vuole, ma uno sforzo a ragionare e a ricollegare con la logica
-quanto sta imparando sotto la Sua paterna guida. Infatti, certe comprensioni sono avvenute per gradi e alcune
-solo quando il Signore gli fa rivivere questo o quell’episodio, la prima volta incompreso, commentandolo.
+quanto sta imparando sotto la Sua paterna guida. Infatti, certe comprensioni sono avvenute per gradi e alcune solo quando il Signore gli fa rivivere questo o quell’episodio, la prima volta incompreso, commentandolo.
 Don Guido fa una prima ed una seconda relazione al suo Vescovo, ma senza alcun esito.
 Fra il 1976 e il 1977, don Guido viene mandato per diversi mesi a Pieve di Cadore. È un periodo grigio
 perché nessuno dei suoi confratelli, neanche l’Arciprete di Pieve, è disposto ad ascoltarlo.
@@ -831,95 +546,55 @@ Nel 1977 viene inviato Parroco a Vìnigo, un paesino della valle del Boite che s
 su una balza lungo le pendici d’un’ampia conca verde.
 È la sua fortuna: una premura della Provvidenza!
 Questo villaggio di poche ‘anime’ non richiede un grande lavoro, per cui gli rimane molto tempo per la
-preghiera e per gli studi. La canonica è una grande e solida casa, ben esposta al sole, che domina dall’alto un
-panorama splendido.
-Questo è il momento più importante delle sue riflessioni. Può finalmente dedicarsi al riordino dei suoi scritti e
-alla stesura definitiva del suo manoscritto.
+preghiera e per gli studi. La canonica è una grande e solida casa, ben esposta al sole, che domina dall’alto un panorama splendido.
+Questo è il momento più importante delle sue riflessioni. Può finalmente dedicarsi al riordino dei suoi scritti e alla stesura definitiva del suo manoscritto.
 I profondi concetti vengono maturati sotto la guida costante della Sapienza.
 È un decennio relativamente sereno e grandemente fruttuoso.
-L’incontro con il Patriarca Albino Luciani,
-il futuro Papa Giovanni Paolo I
+
+#### L’incontro con il Patriarca Albino Luciani, il futuro Papa Giovanni Paolo I
 
 Don Guido aveva capito che il riconoscimento delle rivelazioni, seguendo la via gerarchica, gli era
 precluso.
 Nel frattempo mons. Albino Luciani, suo ex-compagno di Seminario e già Vescovo di Vittorio Veneto,
 era stato nominato Patriarca di Venezia, per cui era diventato suo Superiore e Superiore anche del suo
-Vescovo.Veramente affranto per tanta chiusura e dopo tante esitazioni per rispetto al suo Vescovo, don Guido
-decise di scrivere al Patriarca che, come sappiamo, aveva condiviso con lui le predizioni, fatte ad entrambi
-da Padre Matteo Crawley nel lontano 1928, in cui al giovane Albino era stato predetto che “sarebbe salito ai
-più alti gradi della gerarchia ecclesiastica” e al chierico Guido che “da anziano il Signore gli avrebbe
-rivelato i passi oscuri della Genesi Biblica”. Così don Guido gli raccontò, con una breve relazione, le
-rivelazioni avute dal Signore.
+Vescovo.Veramente affranto per tanta chiusura e dopo tante esitazioni per rispetto al suo Vescovo, don Guido decise di scrivere al Patriarca che, come sappiamo, aveva condiviso con lui le predizioni, fatte ad entrambida Padre Matteo Crawley nel lontano 1928, in cui al giovane Albino era stato predetto che “sarebbe salito aipiù alti gradi della gerarchia ecclesiastica” e al chierico Guido che “da anziano il Signore gli avrebbe rivelato i passi oscuri della Genesi Biblica”. Così don Guido gli raccontò, con una breve relazione, le rivelazioni avute dal Signore.
 Gli spiegò tra l’altro che “Dio fu Padre e Madre per il primo Uomo” non solo spiritualmente ma anche
-fisicamente, perché creò nel seno di una femmina preumana sia il gamete maschile, e così Dio gli fu Padre,
-sia il gamete femminile, e così Dio gli fu Madre, formando la cellula germinativa del primo Uomo; mentre,
-per la creazione della prima Donna, Dio le fu solo Madre, poiché le fu padre l’Uomo stesso generando, ‘in
-similitudine naturae’, nel sonno, come dice la Bibbia.
-
+fisicamente, perché creò nel seno di una femmina preumana sia il gamete maschile, e così Dio gli fu Padre, sia il gamete femminile, e così Dio gli fu Madre, formando la cellula germinativa del primo Uomo; mentre,per la creazione della prima Donna, Dio le fu solo Madre, poiché le fu padre l’Uomo stesso generando, ‘in similitudine naturae’, nel sonno, come dice la Bibbia.
 Il particolare legame che univa don Guido al Patriarca, poiché per entrambi quelle predizioni si erano
 realizzate, gli dava la certezza di essere creduto.
-Il Patriarca infatti gli rispose affettuosamente. Tuttavia lo invitò al riserbo poiché, fin tanto che tali
-rivelazioni non fossero state approvate dalle competenti autorità ecclesiastiche, ossia dal suo Vescovo, esse
-mantenevano il carattere di rivelazioni private.
+Il Patriarca infatti gli rispose affettuosamente. Tuttavia lo invitò al riserbo poiché, fin tanto che tali rivelazioni non fossero state approvate dalle competenti autorità ecclesiastiche, ossia dal suo Vescovo, esse mantenevano il carattere di rivelazioni private.
 Intanto il Patriarca Luciani cominciò a dire pubblicamente che “Dio per l’uomo è Padre e Madre”.
 Questo intervento poteva essere interpretato come un benevolo e intelligente incoraggiamento al Vescovo
-di Belluno. Il Patriarca Luciani era infatti molto rispettoso dei ruoli altrui. Ciò nonostante, il Vescovo rimase
-sulle sue posizioni.
+di Belluno. Il Patriarca Luciani era infatti molto rispettoso dei ruoli altrui. Ciò nonostante, il Vescovo rimase sulle sue posizioni.
 Passò ancora qualche tempo finché don Guido s’incontrò con il Patriarca Luciani a Vittorio Veneto dove
-questi era venuto a guidare un ritiro spirituale di un solo giorno invitato dalla sua affezionata vecchia
-Diocesi. Alla fine del ritiro, il Patriarca lo avvicinò e lo pregò di trattenersi per parlargli. Ma l’ora era tarda e
-don Guido, preoccupato di non perdere il treno utile per la coincidenza con l’ultima corriera, gli rispose che
-sarebbe tornato presto per poter parlare con più calma e corse via.
-Intanto il Patriarca fu eletto Papa e non ebbe più l’occasione di rincontrare don Guido. Tuttavia nel suo
-discorso introduttivo al Soglio Pontificio non esitò a ripetere che “Dio è, per l’uomo, Padre e Madre”,
-affermazione che diede a molti motivo di riflessione.
+questi era venuto a guidare un ritiro spirituale di un solo giorno invitato dalla sua affezionata vecchia Diocesi. Alla fine del ritiro, il Patriarca lo avvicinò e lo pregò di trattenersi per parlargli. Ma l’ora era tarda e don Guido, preoccupato di non perdere il treno utile per la coincidenza con l’ultima corriera, gli rispose che sarebbe tornato presto per poter parlare con più calma e corse via.
+Intanto il Patriarca fu eletto Papa e non ebbe più l’occasione di rincontrare don Guido. Tuttavia nel suo discorso introduttivo al Soglio Pontificio non esitò a ripetere che “Dio è, per l’uomo, Padre e Madre”,affermazione che diede a molti motivo di riflessione.
 Probabilmente il compito di Papa Giovanni Paolo I nei confronti di don Guido e delle rivelazioni da lui
-ricevute era solo quello di avergli creduto e di testimoniare che le predizioni fatte da Padre Matteo Crawley
-nel Seminario di Belluno in quel lontano 1928 si erano avverate per entrambi e di accreditarlo come profeta.
+ricevute era solo quello di avergli creduto e di testimoniare che le predizioni fatte da Padre Matteo Crawley nel Seminario di Belluno in quel lontano 1928 si erano avverate per entrambi e di accreditarlo come profeta.
 
 
-Gli anni della vecchiaia
+#### Gli anni della vecchiaia
 
-Il dolore per la scomparsa di Papa Luciani, che aveva dimostrato amicizia e apertura verso di lui, fu per
-don Guido un’ulteriore prova dolorosa. La solitudine spirituale gli diventava sempre più pesante.
-Nell’inverno del 1985, durante le festività dei Santi, a Vìnigo scivolò sul ghiaccio e, per non cadere, si
-afferrò ad una palizzata.
-Lo strattone fu forte e si lussò la spalla destra. Fu una grossa pena morale e fisica il non poter più usare la
-mano per scrivere con disinvoltura.
+Il dolore per la scomparsa di Papa Luciani, che aveva dimostrato amicizia e apertura verso di lui, fu per don Guido un’ulteriore prova dolorosa. La solitudine spirituale gli diventava sempre più pesante.
+Nell’inverno del 1985, durante le festività dei Santi, a Vìnigo scivolò sul ghiaccio e, per non cadere, si afferrò ad una palizzata.
+Lo strattone fu forte e si lussò la spalla destra. Fu una grossa pena morale e fisica il non poter più usare la mano per scrivere con disinvoltura.
 Dopo un paio di mesi trascorsi all’ospedale di Cortina, si trasferì a Belluno in una piccola e modesta
-mansarda prestatagli dai padri del P.I.M.E. (Pontificio Istituto Missioni Estere) a poca distanza dalla Casa del
-Clero. La sua vecchia casa di Farra, priva di impianto di riscaldamento, non era idonea ad ospitare un
-anziano solo.
+mansarda prestatagli dai padri del P.I.M.E. (Pontificio Istituto Missioni Estere) a poca distanza dalla Casa del Clero. La sua vecchia casa di Farra, priva di impianto di riscaldamento, non era idonea ad ospitare un anziano solo.
 Fu nella cappella della Casa del Clero che ebbi l’occasione di conoscerlo.
 Nel gennaio del 1987, don Guido trovò alloggio nella Casa di Riposo di Meano, una frazione di S.
 Giustina a pochi chilometri da Belluno.
-Don Guido, sebbene già ultraottantenne, manteneva tutta la sua vivacità fisica e intellettuale. Il Signore
-gli aveva promesso una mente limpida, buona vista e buon udito per tutta la vita e così fu. Quegli occhi, che
-si erano tanto affaticati sui libri, con un paio di occhiali gli consentirono di leggere fino alla fine. Anche il
-suo udito rimase perfetto.
+Don Guido, sebbene già ultraottantenne, manteneva tutta la sua vivacità fisica e intellettuale. Il Signore gli aveva promesso una mente limpida, buona vista e buon udito per tutta la vita e così fu. Quegli occhi, che si erano tanto affaticati sui libri, con un paio di occhiali gli consentirono di leggere fino alla fine. Anche il suo udito rimase perfetto.
 Il suo pensiero era sempre rivolto a come poter ottenere il PLACET della Santa Sede. Don Calabria aveva
-predetto tanti anni prima che il messaggio era “urgente” e don Guido si sentiva responsabile di tanto ritardo.
-Poiché la via gerarchica fino a quel momento si era dimostrata impercorribile, andava progettando
-d’informare direttamente il Cardinale Ratzinger. Sfiduciato, finì poi per desistere pensando che la S. Sede,
-senza un parere favorevole del Vescovo competente, non l’avrebbe nemmeno preso in considerazione.
-Accanto all’intima gioia di esser stato fatto partecipe della conoscenza di quelli che erano stati i misteri
-della Genesi e del più ampio e profondo valore della Redenzione, don Guido sperimentava la Passione intima
-di Gesù. Nella sua vita si ripetevano inimmaginabili umiliazioni. La sufficienza che molti suoi confratelli
-non si curavano di nascondere gli diventava sempre più pesante. Il marchio di una fama di ‘visionario’ era il
-suo pane quotidiano.
+predetto tanti anni prima che il messaggio era “urgente” e don Guido si sentiva responsabile di tanto ritardo.Poiché la via gerarchica fino a quel momento si era dimostrata impercorribile, andava progettando d’informare direttamente il Cardinale Ratzinger. Sfiduciato, finì poi per desistere pensando che la S. Sede,senza un parere favorevole del Vescovo competente, non l’avrebbe nemmeno preso in considerazione.Accanto all’intima gioia di esser stato fatto partecipe della conoscenza di quelli che erano stati i misteri della Genesi e del più ampio e profondo valore della Redenzione, don Guido sperimentava la Passione intima di Gesù. Nella sua vita si ripetevano inimmaginabili umiliazioni. La sufficienza che molti suoi confratelli non si curavano di nascondere gli diventava sempre più pesante. Il marchio di una fama di ‘visionario’ era il suo pane quotidiano.
 Tuttavia don Guido non perse mai la fiducia nella Provvidenza. Continuava a coltivare una profonda
-serenità d’animo per la certezza che il Signore avrebbe portato a compimento il Suo progetto. Appena poteva
-che in un modo o in un altro tutti avrebbero conosciuto la verità e avrebbero così compreso la grande
-Misericordia di Dio.
+serenità d’animo per la certezza che il Signore avrebbe portato a compimento il Suo progetto. Appena potevache in un modo o in un altro tutti avrebbero conosciuto la verità e avrebbero così compreso la grande Misericordia di Dio.
 
 
-Le rivelazioni non andarono perdute con la sua morte
+#### Le rivelazioni non andarono perdute con la sua morte
 
 Un giorno, sentendo che le forze gli andavano calando e che non gli restava ormai molto tempo da vivere,
 don Guido mi disse:
-– Desidero lasciare a lei l’eredità materiale dei miei scritti e di quel che rimane della mia biblioteca di
-Farra. Metta il manoscritto e tutti i miei quaderni al sicuro perché, se dovessi mancare, tutte le mie cose
-verrebbero gettate da chi non ne capisce il valore. –
+– Desidero lasciare a lei l’eredità materiale dei miei scritti e di quel che rimane della mia biblioteca di Farra. Metta il manoscritto e tutti i miei quaderni al sicuro perché, se dovessi mancare, tutte le mie cose verrebbero gettate da chi non ne capisce il valore. –
 – Si, ...ma ci sono molti Sacerdoti più vicini a lei di me. –
 – È vero, ma qui sono tutti prevenuti e, fra quelli che hanno accolto queste rivelazioni, nessuno ha
 mostrato un interesse autentico. Io desidero che ottengano l’approvazione del Vescovo di questa Diocesi,
@@ -928,8 +603,7 @@ perciò non desidero che escano da questa Chiesa diocesana che il Signore ha sce
 – Desidero anche che lei porti avanti il mio lavoro, riordinandolo e togliendovi tutte le ripetizioni. –
 – Ma don Guido, lei sa bene che non sono all’altezza! –
 – Dio non cerca le persone più colte o più intelligenti: Dio cerca le persone che sono sinceramente
-motivate a fare la Sua volontà. La conosco ormai da tanto tempo, abbiamo parlato tanto insieme e lei è la
-persona di cui ho più fiducia. –
+motivate a fare la Sua volontà. La conosco ormai da tanto tempo, abbiamo parlato tanto insieme e lei è la persona di cui ho più fiducia. –
 – La ringrazio della sua stima, ma una cosa è parlare di queste cose, un’altra cosa è riordinare i suoi
 scritti. Questo presume una certa discrezionalità e per togliere le ripetizioni, come lei vuole, bisogna fare
 delle scelte. Lei capisce che questo lavoro richiede troppa responsabilità. –
@@ -937,14 +611,10 @@ delle scelte. Lei capisce che questo lavoro richiede troppa responsabilità. –
 mettermi in guardia da inevitabili tentazioni di autocompiacimento, dopo un’altra breve pausa aggiunse:
 – Non creda però che questo compito sia privo di croci. Da un lato c’è la gioia perché Dio ci ha fatto
 partecipi dei suoi progetti; dall’altro deve avere fin da ora la consapevolezza che lei erediterà le mie
-sofferenze, le incomprensioni degli amici più cari, le delusioni e perfino le derisioni, le ostilità, o la
-noncuranza dei Superiori. Sono umiliazioni pungentissime, ma diventano superabili solo se lei non si aspetta
-gratificazioni, salvo quella d’aver fatto il possibile per amore della Verità e per amore di Dio. Se la sente?–
+sofferenze, le incomprensioni degli amici più cari, le delusioni e perfino le derisioni, le ostilità, o la noncuranza dei Superiori. Sono umiliazioni pungentissime, ma diventano superabili solo se lei non si aspetta gratificazioni, salvo quella d’aver fatto il possibile per amore della Verità e per amore di Dio. Se la sente?–
 – Se è così, allora va bene – risposi.
 Con estrema commozione di entrambi, mi fece inginocchiare ai suoi piedi e, posandomi le mani sulla
-testa, formulò una lunghissima preghiera in latino invocando su di me lo Spirito Santo, preghiera di cui io
-capii il senso solo a grandi linee. Mi stava dando, assieme alla sua benedizione, un vero e proprio mandato,
-come un’investitura, a riordinare quanto aveva scritto nei suoi appunti e nei suoi Quaderni. Sentii quella
+testa, formulò una lunghissima preghiera in latino invocando su di me lo Spirito Santo, preghiera di cui io capii il senso solo a grandi linee. Mi stava dando, assieme alla sua benedizione, un vero e proprio mandato, come un’investitura, a riordinare quanto aveva scritto nei suoi appunti e nei suoi Quaderni. Sentii quella
 preghiera come un segno di fiducia, ma provai anche in quell’istante tutto il peso dell’enorme responsabilità
 che comportava.
 Vedendomi emozionata, don Guido non esitò ad incoraggiarmi con amore paterno e continuò:
