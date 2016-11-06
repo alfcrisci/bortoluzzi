@@ -1,2 +1,0 @@
-# bortoluzzi
-text for study
